@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月23日 21时24分58秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国虚拟电厂调控能力突破1亿千瓦，电网灵活性大幅提升</h3><br><p>外资资管集中调研元宇宙内容龙头，线下体验店扩张节奏。<br><br> | 来源：<code>https;//cctiyuzaixianzhibo.com.cn
+</code></p><br><br><h3>美的集团创年内新高，海外家电收入增速超20%</h3><br><p>汉缆股份输配电布局：国内电缆行业的龙头成长路径。<br><br> | 来源：<code>https;//didiaokanqiujrszaixianzhibo.com.cn
+</code></p><br><br><h3>中国男子篮球队亚洲杯闯入决赛，时隔10年重返领奖台</h3><br><p>6G技术研发推进计划，通信设备板块全线异动。<br><br> | 来源：<code>https;//f1zhibowuxingtiyuzhibo.com.cn
+</code></p><br><br><h3>全国戒烟服务门诊覆盖所有三甲医院，吸烟率持续下降</h3><br><p>云南建投放量上涨3.4%，南亚基建订单落地加速。<br><br> | 来源：<code>https;//feisugaoqingzhibozaixianguankan.com.cn
+</code></p><br><br><h3>浙江建投区域基建优势：浙江基建龙头的区域资源壁垒</h3><br><p>全国虚拟电厂调控能力突破1亿千瓦，电网灵活性大幅提升。<br><br> | 来源：<code>https;//feisuguanwangrukou.com.cn
+</code></p><br><br><h3>上汽集团放量上涨3.5%，新能源汽车出口超预期</h3><br><p>超190家机构到访储能电池标的，海外户储订单超预期。<br><br> | 来源：<code>https;//feisunbazhibozaixianzhibo.org.cn
+</code></p><br><br><h3>吉利汽车放量上涨5.6%，新能源车型占比突破50%</h3><br><p>保障性住房建设规划，保障房产业链集体上涨。<br><br> | 来源：<code>https;//feisutiyulaojia.org.cn
+</code></p><br><br><h3>中远海控集运运价反弹，单季业绩预告环比大增</h3><br><p>长江经济带发展成效显著，生态优先绿色发展格局形成。<br><br> | 来源：<code>https;//feisutiyuzaixianzhibonba.com.cn
+</code></p><br><br><h3>国内演出市场票房上半年突破200亿，演唱会经济爆发</h3><br><p>新希望生猪出栏高增，单季业绩预告环比减亏。<br><br> | 来源：<code>https;//feisutiyuzhiboappxiazai.org.cn
+</code></p><br><br><h3>理想汽车单季盈利超20亿，新势力车企业绩超预期</h3><br><p>坚果产品价格上涨5%，休闲食品龙头盈利改善。<br><br> | 来源：<code>https;//feisutiyuzhibonbamianfeiguankan.com.cn
+</code></p><br><br><h3>全国马拉松赛事超500场，全年参赛人次破700万</h3><br><p>新能源赛道集体反弹：动力电池、光伏、储能谁是领涨主线。<br><br> | 来源：<code>https;//feisutiyuzhibonbazhibo.com.cn
+</code></p><br><br><h3>游资顶级席位联手买入中芯国际7亿，半导体龙头获热捧</h3><br><p>养老金新进虚拟电厂标的，首次布局电力信息化赛道。<br><br> | 来源：<code>https;//feisutiyuzhibozaixiankan.com.cn
+</code></p><br><br><h3>隆基绿能底部抬升，上升通道内的低吸窗口显现</h3><br><p>美联储开启降息周期，人民币汇率迎来趋势性升值。<br><br> | 来源：<code>https;//feisuzhiboappxiazaiguanwang.com.cn
+</code></p><br><br><h3>装配式建筑推广政策，装配式建筑标的全线异动</h3><br><p>产业基金组团调研后集中增持风电轴承龙头，合计投入超4亿。<br><br> | 来源：<code>https;//guangsutiyuzhibogaoqing.org.cn
+</code></p><br><br><h3>海大集团研发体系：水产饲料配方技术的持续迭代能力</h3><br><p>多地出台文旅人才扶持政策，引进超万名文旅行业专业人才。<br><br> | 来源：<code>https;//hulizhibonbasaishi.org.cn
+</code></p><br><br><h3>中国男子橄榄球队亚运会闯入八强，项目普及度持续提升</h3><br><p>全国水泥行业碳减排技术升级，低碳生产线占比超60%。<br><br> | 来源：<code>https;//jingyutiyuzhiboguanfangpingtai.com.cn
+</code></p><br><br><h3>苏州园林暑期接待人次破500万，江南古典文旅持续走红</h3><br><p>全国"无废城市"试点扩围至100个，固废资源化利用提速。<br><br> | 来源：<code>https;//jiushifenzhongzuqiuwang.com.cn
+</code></p><br><br><h3>智飞生物异动拉升4.9%，疫苗产品批签发量回升</h3><br><p>客家文化申遗工作推进，千年迁徙文化得到系统性保护。<br><br> | 来源：<code>https;//jrsdidiaokanqiumianfeizhibonba.org.cn
+</code></p><br><br><h3>外资资管集中调研元宇宙内容龙头，线下体验店扩张节奏</h3><br><p>央行超额续作MLF并降息5BP，流动性宽松信号明确。<br><br> | 来源：<code>https;//jrsdidiaowuchajiangaoqingzhibonba.com.cn
+</code></p><br><br><h3>控股股东耗资2.8亿增持创新药龙头，核心管线临床进展获信心</h3><br><p>三一重工突破半年线，中期趋势逐步转强。<br><br> | 来源：<code>https;//jrswangqiuzhibo.org.cn
