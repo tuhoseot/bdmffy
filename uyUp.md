@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分06秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>房贷利率下调后二手房成交回暖，家居家电需求回升</h3><br><p>宁德时代跳空高开6.4%，麒麟电池商业化落地加速。<br><br> | 来源：<code>https://51-anwang.com.cn
+</code></p><br><br><h3>知名私募调研钠电池龙头，量产线投产时间点首次公开</h3><br><p>预制菜核心标的开启新股申购，B端渠道覆盖全国连锁餐饮。<br><br> | 来源：<code>https://512vip-kaiyuan-official.com
+</code></p><br><br><h3>公募基金集中调研智慧交通标的，车路协同项目落地节奏</h3><br><p>海绵城市建设推广，海绵城市板块集体上涨。<br><br> | 来源：<code>https://51chi-guawang.com.cn
+</code></p><br><br><h3>洋河梦之蓝批价上调4%，白酒全产业链盈利优化</h3><br><p>隆基绿能光伏技术迭代：HPBC+TOPCon的技术领先性。<br><br> | 来源：<code>https://51chiguayuming.com.cn
+</code></p><br><br><h3>2026年文旅市场全面繁荣，文化自信融入大众日常生活</h3><br><p>北约峰会发布新战略文件，调整东翼防御部署。<br><br> | 来源：<code>https://51dashijian.com.cn
+</code></p><br><br><h3>中国女子摔跤队世锦赛包揽全部金牌，统治力无人能及</h3><br><p>实控人邀约收购中药创新药企业，溢价35%发起全面要约。<br><br> | 来源：<code>https://51hei-liao.com.cn
+</code></p><br><br><h3>华为Mate70销量破千万，消费电子产业链全线异动</h3><br><p>保险资管连续增持光伏胶膜标的，长期配置光伏核心资产。<br><br> | 来源：<code>https://52-pojie.com.cn
+</code></p><br><br><h3>北向资金连续5日加仓贵州茅台，持仓占比创历史新高</h3><br><p>中拉经贸合作论坛举办，达成超200亿美元合作协议。<br><br> | 来源：<code>https://52662-dingsheng-official.com
+</code></p><br><br><h3>美的集团创年内新高，多头排列下的趋势延续性</h3><br><p>黄山暑期单日客流破4万，山顶酒店提前半个月售罄。<br><br> | 来源：<code>https://6686-online-login.com
+</code></p><br><br><h3>千禾味业放量上涨4.3%，零添加产品份额持续提升</h3><br><p>恒瑞医药创新药管线：研发投入进入收获期的业绩展望。<br><br> | 来源：<code>https://728-android-old.com
+</code></p><br><br><h3>千兆城市建设全覆盖，光通信板块走强</h3><br><p>恒瑞医药研发管线复盘：从仿制药龙头到创新药巨头的蜕变。<br><br> | 来源：<code>https://800-quanxun-baicai.com
+</code></p><br><br><h3>宠物食品企业开启新股申购，海外自主品牌占比突破40%</h3><br><p>降准释放长期资金支持基建，建筑板块迎来估值修复。<br><br> | 来源：<code>https://8268-caipiao-official.com
+</code></p><br><br><h3>中国女子摔跤队世锦赛斩获3金，奥运备战实力强劲</h3><br><p>医美行业合规化政策，头部医美标的拉升。<br><br> | 来源：<code>https://850-official-old.com
+</code></p><br><br><h3>农产品深加工扶持政策，农产品加工标的全线拉升</h3><br><p>青岛国际啤酒节开幕，首日吸引客流超30万营收破亿。<br><br> | 来源：<code>https://850-version-new.com
+</code></p><br><br><h3>大股东耗资6亿增持半导体材料龙头，彰显国产替代信心</h3><br><p>隆平高科涨超4.4%，转基因商业化推进加速。<br><br> | 来源：<code>https://8866h-cc-vip.com
+</code></p><br><br><h3>海大集团研发体系：水产饲料配方技术的持续迭代能力</h3><br><p>储能大项目集中并网，大储板块迎来行情催化。<br><br> | 来源：<code>https://8868-app-vip.com
+</code></p><br><br><h3>全国城市污水处理率达98%，污泥无害化处理率超90%</h3><br><p>登海种业玉米种子需求超预期，单季业绩预告超预期。<br><br> | 来源：<code>https://8x8x8.com.cn
+</code></p><br><br><h3>外资机构集中调研跨境支付标的，海外结算规模环比大增</h3><br><p>液冷技术标的开启新股申购，AI数据中心液冷订单爆发式增长。<br><br> | 来源：<code>https://8x8x8x.com.cn
+</code></p><br><br><h3>美伊冲突出现缓和信号，双方开启间接谈判寻求停火路径</h3><br><p>中国高尔夫球选手首次夺得美巡赛冠军，实现历史性突破。<br><br> | 来源：<code>https://8x8xshuimitao.com.cn
+</code></p><br><br><h3>QFII大幅加仓IDC龙头，海外资金看好AI算力需求爆发</h3><br><p>海外资管组团调研光伏支架标的，跟踪支架海外渗透率提升。<br><br> | 来源：<code>https://8x8xzaixianguankanwanzhengban.com.cn
