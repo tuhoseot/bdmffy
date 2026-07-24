@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分16秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国绿证交易规模突破1亿个，覆盖超20个高耗能行业</h3><br><p>浪潮信息AI服务器产能：国内AI服务器龙头的份额优势。<br><br> | 来源：<code>https://xiao-mitao.com.cn
+</code></p><br><br><h3>大模型在能源领域应用，电网调度效率提升25%</h3><br><p>东数西算工程新节点开工，IDC算力板块走强。<br><br> | 来源：<code>https://xiao-shimei.com.cn
+</code></p><br><br><h3>隆基绿能单季盈利超百亿，光伏龙头业绩超预期</h3><br><p>银保监会出台新政，进一步降低实体经济融资成本。<br><br> | 来源：<code>https://xiao-wu-nu.com.cn
+</code></p><br><br><h3>中芯国际管理层优势：半导体制造龙头的经营效率提升</h3><br><p>存款利率连续下调，居民配置权益资产意愿持续增强。<br><br> | 来源：<code>https://xiaobaoxunhuazaixianguankan.cn
+</code></p><br><br><h3>存款利率下调推动居民储蓄搬家，权益市场增量资金入场</h3><br><p>知名私募大手笔增持乳制品龙头，持仓占比达3.5%。<br><br> | 来源：<code>https://xiaochaihu.com.cn
+</code></p><br><br><h3>大模型在零售领域应用，AI智能选品准确率提升25%</h3><br><p>金龙汽车涨超3.6%，新能源客车订单持续落地。<br><br> | 来源：<code>https://xiaogouzhuiman.com.cn
+</code></p><br><br><h3>国内宠物友好景区破千家，携宠游订单同比增长180%</h3><br><p>国产动画电影票房上半年突破80亿元，国漫IP影响力扩大。<br><br> | 来源：<code>https://xiaohuangyou.com.cn
+</code></p><br><br><h3>机构席位大额买入拓普集团9200万，零部件龙头获长线布局</h3><br><p>算力基础设施建设指导意见，算力板块全线走强。<br><br> | 来源：<code>https://xiaoluoli.com.cn
+</code></p><br><br><h3>AI翻译工具支持百种语言实时互译，准确率超专业译员</h3><br><p>西藏暑期游客量突破200万人次，高原旅游热度创新高。<br><br> | 来源：<code>https://xiaoshuhuang.cn
+</code></p><br><br><h3>中国女足亚洲杯夺冠，时隔16年重回亚洲之巅</h3><br><p>大股东耗资3.8亿增持钙钛矿设备标的，助力核心设备研发。<br><br> | 来源：<code>https://xiaoxinnai.com.cn
+</code></p><br><br><h3>中国男子乒乓球队世乒赛团体夺冠，实现十一连冠伟业</h3><br><p>央行超额续作MLF并降息5BP，流动性宽松信号明确。<br><br> | 来源：<code>https://xiaoyangmanguan.com.cn
+</code></p><br><br><h3>中国电建绿电运营：新能源电站的长期稳定现金流价值</h3><br><p>航发动力放量拉升5.2%，军工发动机订单落地加速。<br><br> | 来源：<code>https://xiaoyuandongmanku.com.cn
+</code></p><br><br><h3>调味品开启集体涨价，食品板块盈利迎来修复</h3><br><p>超200家机构到访锂电铜箔龙头，4.5μm极薄铜箔量产。<br><br> | 来源：<code>https://xie-shen-chang-guan.com.cn
+</code></p><br><br><h3>医美监管政策优化，医美消费标的全线拉升</h3><br><p>机构专用席位净买入许继电气5800万，特高压龙头获加仓。<br><br> | 来源：<code>https://xin-pujing-yule.com.cn
+</code></p><br><br><h3>全国旅游厕所建设完成，所有景区实现第三卫生间全覆盖</h3><br><p>企业债券融资利率大幅下行，直接融资占比进一步提升。<br><br> | 来源：<code>https://xin91shipin.cn
+</code></p><br><br><h3>国产动画剧集全网播放量突破300亿，传统文化元素成爆款密码</h3><br><p>长安汽车放量上涨4.9%，深蓝品牌月销破3万。<br><br> | 来源：<code>https://xing-bake.com.cn
+</code></p><br><br><h3>全国二手房市场活跃度回升，成交量连续3个月环比上涨</h3><br><p>亨通光电涨超4.4%，海洋能源业务贡献增量。<br><br> | 来源：<code>https://xing-fubaodaohang.cn
+</code></p><br><br><h3>全国体育产业总规模上半年突破3.5万亿元，占GDP比重提升</h3><br><p>头部公募调研汽车电子标的，车规芯片出货量环比大增。<br><br> | 来源：<code>https://xingbachuanmei.com.cn
+</code></p><br><br><h3>大北农种业业务放量，前三季度业绩预增超55%</h3><br><p>基金公司集体到访氢能储运龙头，高压储氢瓶订单爆发。<br><br> | 来源：<code>https://xingbakeguanwang.cn
+</code></p><br><br><h3>地产链政策宽松预期：房企、家居、建材的轮动机会梳理</h3><br><p>端侧AI应用爆发，手机AI功能月活用户破10亿。<br><br> | 来源：<code>https://xingbashequ.cn
