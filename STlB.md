@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分11秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>白酒批价连续上涨，高端白酒板块盈利弹性释放</h3><br><p>养老金现身碳化硅衬底龙头，6英寸衬底产能释放进度披露。<br><br> | 来源：<code>https://jin-bao-bo.com.cn
+</code></p><br><br><h3>恒瑞医药创新药管线：国内创新药龙头的研发投入回报</h3><br><p>国际金价创历史新高，黄金珠宝标的集体上涨。<br><br> | 来源：<code>https://jin-man-tiantang-benzi.com.cn
+</code></p><br><br><h3>低空经济发展规划出台，低空经济标的拉升</h3><br><p>中芯国际放量拉升7.1%，半导体国产替代逻辑再强化。<br><br> | 来源：<code>https://jin-man-tiantang-fabuye.com.cn
+</code></p><br><br><h3>外资资管集中调研元宇宙内容龙头，线下体验店扩张节奏</h3><br><p>锂电铜箔价格上涨4%，铜箔龙头盈利边际改善。<br><br> | 来源：<code>https://jin-man-tiantang-guan-wang.com.cn
+</code></p><br><br><h3>金砖国家新开发银行新增贷款规模突破500亿美元</h3><br><p>建筑节能改造政策，绿色建筑板块集体上涨。<br><br> | 来源：<code>https://jin-man-tiantang-wangye-ban.com.cn
+</code></p><br><br><h3>游资顶级席位打板沃森生物9800万，疫苗标的获热炒</h3><br><p>广汽集团涨超4.8%，埃安品牌月销破5万。<br><br> | 来源：<code>https://jin-man-tiantang-xiazai.com.cn
+</code></p><br><br><h3>紫金矿业沿5日均线上行，趋势行情下的持仓策略</h3><br><p>多地出台支持民营经济新政，破除市场准入隐性壁垒。<br><br> | 来源：<code>https://jin-man-tiantang.com.cn
+</code></p><br><br><h3>湖南投资涨超2.1%，长沙路桥业务持续向好</h3><br><p>中航沈飞军机交付逻辑：军工整机龙头的长期成长空间。<br><br> | 来源：<code>https://jin-mantiantang.com.cn
+</code></p><br><br><h3>三亚暑期酒店预订量同比增长35%，滨海度假持续火热</h3><br><p>社保基金新进重仓股，社保持仓标的集体异动。<br><br> | 来源：<code>https://jingmantiantangmanhua.com.cn
+</code></p><br><br><h3>全国企业债券发行规模上半年达3.5万亿元，直接融资占比提升</h3><br><p>中国中车海外订单落地，单季业绩预告超预期。<br><br> | 来源：<code>https://jingpin-jiujiu.com.cn
+</code></p><br><br><h3>电池片价格小幅上调3%，光伏产业链盈利分配优化</h3><br><p>全国大学生就业帮扶行动启动，国企新增岗位超80万。<br><br> | 来源：<code>https://jingpin-shipin.com.cn
+</code></p><br><br><h3>上半年全国财政收入同比增长3.7%，民生支出占比超70%</h3><br><p>央行下调再贷款利率，精准支持科技创新领域。<br><br> | 来源：<code>https://jingpin-yi-qu.com.cn
+</code></p><br><br><h3>西安大唐不夜城暑期日均游客量突破30万人次，夜间文旅火爆</h3><br><p>游资知名席位联手买入浙江建投1.6亿，基建标的获资金追捧。<br><br> | 来源：<code>https://jingpin-yiqu.com.cn
+</code></p><br><br><h3>大股东耗资6.3亿增持数字人民币标的，助力场景覆盖扩张</h3><br><p>2026年全球经济增速达3.2%，实现温和复苏稳步增长。<br><br> | 来源：<code>https://jingpin-yiquerqu.com.cn
+</code></p><br><br><h3>社保基金新进智慧矿山龙头，布局煤矿智能化改造赛道</h3><br><p>AI绘画工具用户破亿，国潮风格生成模型成爆款。<br><br> | 来源：<code>https://jingpindashi.com.cn
+</code></p><br><br><h3>张家界暑期接待人次破2000万，山地游产品持续热销</h3><br><p>海天味业涨超3.5%，调味品行业需求复苏。<br><br> | 来源：<code>https://jingpinjiujiujiu.com.cn
+</code></p><br><br><h3>保险资管举牌绿电运营标的，长期配置价值获机构认可</h3><br><p>钴价连续上涨13%，3C电池板块盈利提升。<br><br> | 来源：<code>https://jingpinshipin.com.cn
+</code></p><br><br><h3>北向资金连续增持医美耗材龙头，近2月持仓增幅超40%</h3><br><p>全球人工智能芯片市场规模突破1500亿美元，算力需求暴涨。<br><br> | 来源：<code>https://jingpinwang.com.cn
+</code></p><br><br><h3>全国研究生考试报名人数首次回落，就业导向成为报考主流</h3><br><p>五粮液批价上涨5%，次高端白酒板块迎来行情。<br><br> | 来源：<code>https://jingpinyi-qu.com.cn
+</code></p><br><br><h3>隆基绿能单季盈利超百亿，光伏龙头业绩超预期</h3><br><p>全国武夷山国家公园生态监测系统建成，生物多样性数据实时采集。<br><br> | 来源：<code>https://jingpinyi-querqu.com.cn
