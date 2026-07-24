@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分56秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>新疆暑期游订单破5000万，独库公路日均通车量超2万辆</h3><br><p>全国运动康复中心超万家，运动损伤诊疗体系逐步完善。<br><br> | 来源：<code>https://go-caoliushequ.cn
+</code></p><br><br><h3>全国足球场数量超20万个，人均足球场地面积达1.8平方米</h3><br><p>实控人溢价15%增持碳纤维企业，传递长期发展信心。<br><br> | 来源：<code>https://go-fuliji.com.cn
+</code></p><br><br><h3>美联储降息周期开启，北向资金单周净流入超300亿</h3><br><p>通威股份全产业链成本控制：光伏硅料环节的盈利韧性。<br><br> | 来源：<code>https://go-hg-sports.com.cn
+</code></p><br><br><h3>欧元区经济走出衰退，二季度GDP环比增长0.3%</h3><br><p>全国城市马拉松赛事数量突破1500场，覆盖所有省份。<br><br> | 来源：<code>https://go-jinmantiantang.com.cn
+</code></p><br><br><h3>宁德时代异动拉升6.2%，海外储能项目持续落地</h3><br><p>地方国资战略入股卫星互联网标的，助力星座组网建设。<br><br> | 来源：<code>https://go-jisu-sports.com.cn
+</code></p><br><br><h3>产业基金组团调研后集中增持氢能储运龙头，合计投入超5亿</h3><br><p>全国矿山生态修复面积年度完成超2万公顷，废弃矿山变绿洲。<br><br> | 来源：<code>https://go-kaiyun-hub.com.cn
+</code></p><br><br><h3>贵州暑期游客量突破7000万人次，山地旅游品牌影响力扩大</h3><br><p>全面降准叠加定向降息，宽货币向宽信用传导加速。<br><br> | 来源：<code>https://go-mitaoshipin.com.cn
+</code></p><br><br><h3>储能温控龙头开启新股申购，海外客户覆盖全球头部厂商</h3><br><p>长安汽车涨停封板，突破后的延续性如何判断。<br><br> | 来源：<code>https://go-mogushipin.com.cn
+</code></p><br><br><h3>文化纸价格单月上涨6%，纸企盈利边际改善</h3><br><p>知名私募大手笔增持汽车轻量化标的，持仓占比突破4%。<br><br> | 来源：<code>https://gongce-by-zhu-xiang-bi-qu-ge-zuixin-zhangjie.com.cn
+</code></p><br><br><h3>全国农业面源污染治理成效显著，化肥使用量连续11年下降</h3><br><p>不要盲目跟风炒热点：大部分追高的资金，最后都会成为接盘侠。<br><br> | 来源：<code>https://goutouluoli.com.cn
+</code></p><br><br><h3>国内研学旅行市场规模破千亿，覆盖超5000万中小学生</h3><br><p>全国碳排放强度同比下降4.2%，提前完成"十四五"减排目标。<br><br> | 来源：<code>https://goutouluolishipin.com.cn
+</code></p><br><br><h3>全国全民健身日活动启动，全国超万场赛事覆盖千万群众</h3><br><p>万科A核心城市去化超预期，单季业绩预告环比改善。<br><br> | 来源：<code>https://gpian.net.cn
+</code></p><br><br><h3>外资机构席位净买入中国交建5700万，基建龙头获外资加仓</h3><br><p>央行逆回购操作利率下调，短期资金面维持宽松。<br><br> | 来源：<code>https://guess-worldcup-win.com
+</code></p><br><br><h3>北向资金连续增持智能驾驶龙头，近1月持仓增幅超30%</h3><br><p>中国轮滑队世锦赛包揽全部金牌，优势项目持续领跑世界。<br><br> | 来源：<code>https://guiruhougong.com.cn
+</code></p><br><br><h3>央行表态不搞"大水漫灌"，精准降息支持实体经济重点领域</h3><br><p>公募基金集中调研智慧矿山龙头，煤矿智能化改造订单翻倍。<br><br> | 来源：<code>https://guo-mo-bai-lu.com.cn
+</code></p><br><br><h3>降准资金定向支持绿色能源，光伏风电板块获流动性利好</h3><br><p>全国扬子鳄野生种群数量突破2万只，野外放归成效显著。<br><br> | 来源：<code>https://guochan-chengren-dianying.com.cn
+</code></p><br><br><h3>美联储降息周期开启，北向资金持续流入核心资产</h3><br><p>薯片产品价格上调4%，零食板块迎来涨价催化。<br><br> | 来源：<code>https://guochan-chuanmei.com.cn
+</code></p><br><br><h3>宠物食品企业开启新股申购，海外自主品牌占比突破40%</h3><br><p>世界乒乓球锦标赛中国队包揽5金，延续国乒辉煌。<br><br> | 来源：<code>https://guochan-jingpin-shipin.com.cn
+</code></p><br><br><h3>福州三坊七巷暑期客流超1500万，闽派文旅产品热销</h3><br><p>西部大开发新规划出台，西部基建标的全线拉升。<br><br> | 来源：<code>https://guochan-shipin.com.cn
+</code></p><br><br><h3>高管团队集体增持智慧交通标的，合计增持金额超1.2亿</h3><br><p>QFII集中调研快递物流龙头，单票盈利创历史新高。<br><br> | 来源：<code>https://guochan-shipinzaixianguankan.com.cn
