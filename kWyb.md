@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分09秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>美的集团全球化运营：家电龙头的海外市场拓展路径</h3><br><p>航发动力放量拉升5.2%，军工发动机订单落地加速。<br><br> | 来源：<code>https://zhengtaimanhua.com.cn
+</code></p><br><br><h3>晶澳科技涨超4.8%，光伏组件出口数据亮眼</h3><br><p>洋河股份渠道改革：白酒企业渠道优化的成功案例解析。<br><br> | 来源：<code>https://zhengtu-guoji-app.com
+</code></p><br><br><h3>法律大模型助力普法，AI法律咨询覆盖千万基层群众</h3><br><p>上半年全国财政收入同比增长3.7%，民生支出占比超70%。<br><br> | 来源：<code>https://zhengtu-guoji-entry.com
+</code></p><br><br><h3>薯片产品价格上调4%，零食板块迎来涨价催化</h3><br><p>多式联运示范工程落地，物流枢纽板块走强。<br><br> | 来源：<code>https://zhengtu-guoji.com.cn
+</code></p><br><br><h3>海上风电大基地集中开工，海缆产业链标的上涨</h3><br><p>中国男子110米栏小将跑出12秒90，接班刘翔创造新历史。<br><br> | 来源：<code>https://zhenren-sports-hub.com.cn
+</code></p><br><br><h3>中微公司放量拉升6.2%，刻蚀设备订单持续落地</h3><br><p>10年期国债收益率下行至2.5%以下，权益资产吸引力提升。<br><br> | 来源：<code>https://zhibo-zuoai.com.cn
+</code></p><br><br><h3>饼干产品价格上涨3%，食品细分板块盈利提升</h3><br><p>全国钢铁行业超低排放改造完成，减排效果达国际先进水平。<br><br> | 来源：<code>https://zhiguangzaixian.org.cn
+</code></p><br><br><h3>首套房贷款利率动态调整，核心城市刚需购房成本创新低</h3><br><p>深股通席位单日买入海天味业6100万，调味品标的增持。<br><br> | 来源：<code>https://zhiguangzaixianguankan.org.cn
+</code></p><br><br><h3>全国县域经济百强榜发布，东部地区占比超七成</h3><br><p>知名私募大手笔增持储能电池标的，海外户储订单获资本布局。<br><br> | 来源：<code>https://zhongwenzimu-rihan.com.cn
+</code></p><br><br><h3>券商研究所扎堆调研数字人民币标的，线下场景覆盖突破亿级</h3><br><p>有机硅价格连续上涨10%，硅化工龙头盈利修复超预期。<br><br> | 来源：<code>https://zhongwenzimuri-han.com.cn
+</code></p><br><br><h3>央行逆回购操作利率下调，短期资金面维持宽松</h3><br><p>桂林山水暑期游客量突破400万人次，经典景区持续焕发活力。<br><br> | 来源：<code>https://zhongwenzimurihan.com.cn
+</code></p><br><br><h3>中欧班列开行量创新高，铁路物流板块集体上涨</h3><br><p>城中村改造专项政策，城中村改造标的全线异动。<br><br> | 来源：<code>https://zhongying-guoji-web.com
+</code></p><br><br><h3>润和软件鸿蒙生态布局：国产操作系统的商业化空间测算</h3><br><p>中国游泳队世锦赛斩获7金，打破3项世界纪录。<br><br> | 来源：<code>https://zhongying-zygjb-official.com
+</code></p><br><br><h3>财政部出台减税降费新政，全年为企业减负超1.2万亿元</h3><br><p>多地推出城市更新专项政策，年内撬动投资超万亿元。<br><br> | 来源：<code>https://zhongziwuma.net.cn
+</code></p><br><br><h3>大金重工放量上涨5.7%，风电塔筒全球份额领先</h3><br><p>白银价格单月上涨12%，贵金属板块集体异动。<br><br> | 来源：<code>https://zhuce-song-cai-jin.com.cn
+</code></p><br><br><h3>赛力斯涨超8.1%，华为智选车型销量持续攀升</h3><br><p>长城汽车坦克系列放量，单季业绩预告超预期。<br><br> | 来源：<code>https://zi-paitoupai.com.cn
+</code></p><br><br><h3>飞天茅台批价突破2900元，白酒龙头盈利超预期</h3><br><p>三亚暑期酒店预订量同比增长35%，滨海度假持续火热。<br><br> | 来源：<code>https://zipaitoupai.com.cn
+</code></p><br><br><h3>知名私募调研低空飞行器标的，eVTOL适航认证进度披露</h3><br><p>游资顶级席位打板天赐材料1.2亿，电解液标的获热炒。<br><br> | 来源：<code>https://ziweishipin.cn
+</code></p><br><br><h3>韦尔股份异动拉升5.1%，CIS芯片需求回暖</h3><br><p>小鹏汽车智能驾驶优势：新势力车企的技术差异化路径。<br><br> | 来源：<code>https://ziweishipin.net.cn
+</code></p><br><br><h3>房贷利率下限进一步放宽，刚需购房成本大幅下降</h3><br><p>百亿私募组团调研光模块企业，1.6T产品送样海外客户。<br><br> | 来源：<code>https://zpkaz.cn
