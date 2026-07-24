@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分19秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国跳水队世锦赛包揽全部13金，延续梦之队统治力</h3><br><p>沙漠光伏基地建设规划，大基地光伏标的全线异动。<br><br> | 来源：<code>https://bbsports-web.com.cn
+</code></p><br><br><h3>中国中车异动拉升3.2%，动车组新车型交付加速</h3><br><p>新增开户数环比大增，互联网券商板块全线走强。<br><br> | 来源：<code>https://bcbm788-web-vip.com
+</code></p><br><br><h3>中老铁路跨境游火爆，昆明至曼谷旅游团一票难求</h3><br><p>装配式建筑推广政策，装配式建筑标的全线异动。<br><br> | 来源：<code>https://beibei-857-new.com
+</code></p><br><br><h3>东方电气氢能布局：能源装备龙头的第二成长曲线解析</h3><br><p>全国马术赛事超百场，马术运动从小众走向大众。<br><br> | 来源：<code>https://beitiao-ma-fei-dianying.com.cn
+</code></p><br><br><h3>全国虚拟电厂调控能力突破1亿千瓦，电网灵活性大幅提升</h3><br><p>央行逆回购操作利率下调，短期资金面维持宽松。<br><br> | 来源：<code>https://benzidongman.com.cn
+</code></p><br><br><h3>外资资管连续加仓CXO龙头，近3月持仓占比提升至7%</h3><br><p>锂电铜箔价格上涨4%，铜箔龙头盈利边际改善。<br><br> | 来源：<code>https://benzigang.com.cn
+</code></p><br><br><h3>券商研究所扎堆调研车载芯片龙头，车规级认证进度超预期</h3><br><p>全球6G研发进入关键阶段，多国联合推进技术标准制定。<br><br> | 来源：<code>https://benzimanhua.com.cn
+</code></p><br><br><h3>国内大模型性能榜单更新，国产模型多项指标超越国际竞品</h3><br><p>箱板纸价格上涨5%，包装产业链盈利改善。<br><br> | 来源：<code>https://benziwangzhan.com.cn
+</code></p><br><br><h3>保险资管扎堆调研航空发动机标的，量产交付进度引关注</h3><br><p>外资资管举牌消费电子龙头，苹果产业链获外资持续加仓。<br><br> | 来源：<code>https://bi-ka.com.cn
+</code></p><br><br><h3>国内AI生成内容监管细则落地，AIGC内容标注要求全面实施</h3><br><p>全国珍稀濒危植物保护名录更新，超千种植物得到有效保护。<br><br> | 来源：<code>https://bi-si-luntan.com.cn
+</code></p><br><br><h3>大湾区推出100条跨境文旅线路，港澳居民赴内地游热度飙升</h3><br><p>亿纬锂能放量上涨6.4%，储能电池出货量翻倍。<br><br> | 来源：<code>https://bijinihushi.com.cn
+</code></p><br><br><h3>央行降准降息组合拳落地，A股市场迎来全面估值修复</h3><br><p>百亿私募组团调研碳化硅企业，车规级器件量产线投产。<br><br> | 来源：<code>https://bisiluntan.com.cn
+</code></p><br><br><h3>欧盟第21轮对俄制裁方案通过，覆盖能源、金融多领域</h3><br><p>固态电池试点线投产，固态电池产业链集体异动。<br><br> | 来源：<code>https://bitebishipin.org.cn
+</code></p><br><br><h3>全国碳排放权交易市场成交额突破200亿元，碳定价机制完善</h3><br><p>中国跆拳道队世锦赛斩获5金，金牌数位列奖牌榜第一。<br><br> | 来源：<code>https://blfco.cn
+</code></p><br><br><h3>头部机构组团到访中药创新药标的，医保谈判结果超预期</h3><br><p>钛白粉开启新一轮涨价潮，全行业提价覆盖海内外市场。<br><br> | 来源：<code>https://bob-sports-pro.com.cn
+</code></p><br><br><h3>天合光能放量上涨5.5%，N型组件渗透率持续提升</h3><br><p>北向资金连续加仓赣锋锂业，锂矿龙头获外资持续流入。<br><br> | 来源：<code>https://bocai-tangguo-web.com
+</code></p><br><br><h3>机构+北向合力买入东方雨虹7700万，建材龙头获资金布局</h3><br><p>瓦楞纸价格上调4%，造纸板块迎来全面涨价催化。<br><br> | 来源：<code>https://boduoye.com.cn
+</code></p><br><br><h3>磷酸铁锂价格连续上涨7%，动力电池材料环节回暖</h3><br><p>宇通客车放量上涨3.8%，海外客车出口数据亮眼。<br><br> | 来源：<code>https://boluo-shipin.com.cn
+</code></p><br><br><h3>全国无偿献血人次突破2000万，临床用血全部来自自愿捐献</h3><br><p>温氏股份管理优化：养殖行业底部的经营效率提升逻辑。<br><br> | 来源：<code>https://btbxx.org.cn
+</code></p><br><br><h3>大模型在电力巡检领域应用，缺陷识别效率提升5倍</h3><br><p>上半年全国铁路固定资产投资完成4500亿元，基建稳步推进。<br><br> | 来源：<code>https://bujianxingkongzaixianguankan.com.cn
