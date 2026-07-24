@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分20秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>新型电力系统建设规划，电力设备板块走强</h3><br><p>中国通号涨超3.4%，高铁信号系统份额领先。<br><br> | 来源：<code>https://yazhouwuma.net.cn
+</code></p><br><br><h3>产业基金组团调研后集中增持医药流通龙头，合计投入超6亿</h3><br><p>全国居民恩格尔系数降至28.5%，消费结构持续优化升级。<br><br> | 来源：<code>https://yazhouyi.com.cn
+</code></p><br><br><h3>企业中长期贷款利率创历史新低，制造业资本开支回升</h3><br><p>实控人兜底式增持游戏出海龙头，员工响应参与超预期。<br><br> | 来源：<code>https://yazhouyijiriben.com.cn
+</code></p><br><br><h3>全球债务规模突破320万亿美元，新兴市场债务风险可控</h3><br><p>五粮液重回165元，中秋旺季备货提前启动。<br><br> | 来源：<code>https://yazhouyiquerqu.com.cn
+</code></p><br><br><h3>全国虚拟电厂调控能力突破1亿千瓦，电网灵活性大幅提升</h3><br><p>机构资金联手买入晶澳科技7600万，组件龙头获机构抱团。<br><br> | 来源：<code>https://yazhouzonghewang.com.cn
+</code></p><br><br><h3>宝钢股份产品结构升级：高端钢铁的盈利稳定性分析</h3><br><p>全国公立医院绩效考核连续5年提升，医疗服务质量持续改善。<br><br> | 来源：<code>https://yi-qicao.com.cn
+</code></p><br><br><h3>山东"三孔"景区暑期接待游客超200万人次，传统文化游升温</h3><br><p>基金公司集体到访液冷技术龙头，AI数据中心液冷订单爆发。<br><br> | 来源：<code>https://yiduiyi-shipin-app.com.cn
+</code></p><br><br><h3>海天味业调味品渠道优势：国内调味品龙头的下沉网络</h3><br><p>地方国资战略入股人形电机龙头，助力核心零部件国产化。<br><br> | 来源：<code>https://yin-jiao.com.cn
+</code></p><br><br><h3>澜起科技内存接口芯片优势：全球细分赛道的龙头价值</h3><br><p>城市更新行动政策，城市更新板块走强。<br><br> | 来源：<code>https://yin-se-shipin.com.cn
+</code></p><br><br><h3>百亿私募组团调研固态电解质企业，实验室数据突破行业阈值</h3><br><p>运达股份放量上涨5.3%，风电整机盈利修复。<br><br> | 来源：<code>https://yin-wen.com.cn
+</code></p><br><br><h3>AI视频修复技术普及，老电影4K修复效率提升10倍</h3><br><p>保险资管连续增持AI安防龙头，海外订单高增获机构认可。<br><br> | 来源：<code>https://yinghuakanfan.com.cn
+</code></p><br><br><h3>全国城市慢行系统建设提速，绿道总里程突破15万公里</h3><br><p>韦尔股份异动拉升5.1%，CIS芯片需求回暖。<br><br> | 来源：<code>https://yingkongtao.com.cn
+</code></p><br><br><h3>铜版纸价格单月上涨7%，造纸细分板块迎来行情</h3><br><p>保险资管扎堆调研养老产业标的，养老社区入住率数据披露。<br><br> | 来源：<code>https://yingshi91.cn
+</code></p><br><br><h3>东盟经济一体化进程加速，2026年区域内贸易占比升至35%</h3><br><p>基金公司集体到访建筑光伏一体化标的，订单爆发式增长。<br><br> | 来源：<code>https://yinnanluannu.com.cn
+</code></p><br><br><h3>降准资金定向支持半导体产业，芯片板块获流动性利好</h3><br><p>宇通客车全球客车龙头优势：新能源客车的全球份额扩张。<br><br> | 来源：<code>https://yiqi-cao.com.cn
+</code></p><br><br><h3>亚太经合组织峰会召开，达成数字经济合作框架</h3><br><p>镍价单月上涨11%，不锈钢板块迎来涨价催化。<br><br> | 来源：<code>https://yiqic.com.cn
+</code></p><br><br><h3>北向资金大额扫货大金重工5100万，塔筒龙头获外资流入</h3><br><p>国内演出市场票房上半年突破200亿，演唱会经济爆发。<br><br> | 来源：<code>https://yiqicao17c.com.cn
+</code></p><br><br><h3>全国公立医院绩效考核连续5年提升，医疗服务质量持续改善</h3><br><p>核电新项目审批重启，核电产业链标的全线拉升。<br><br> | 来源：<code>https://yiqicaocom.com.cn
+</code></p><br><br><h3>炒股到最后拼的是心态：再好的牛股拿不住也是白搭</h3><br><p>国内政策性降息落地，宽信用进程加速推进。<br><br> | 来源：<code>https://yiqicaomeiridasai.com.cn
+</code></p><br><br><h3>泸州老窖品牌梯队建设：国窖+特曲的全价格带覆盖</h3><br><p>先导智能技术积累：锂电设备全球龙头的核心竞争力。<br><br> | 来源：<code>https://yiqicaorukou.com.cn
