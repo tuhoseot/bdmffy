@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分22秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>宝钢股份板材盈利修复，前三季度业绩预增超30%</h3><br><p>多晶硅价格连续上涨7%，光伏产业链价格体系企稳回升。<br><br> | 来源：<code>https://hei-si.com.cn
+</code></p><br><br><h3>中国男子击剑队世锦赛团体夺冠，重回世界顶尖行列</h3><br><p>全国骑行赛事超千场，骑行运动参与人数破5000万。<br><br> | 来源：<code>https://heidayang.com.cn
+</code></p><br><br><h3>华域汽车涨超3.9%，汽车零部件龙头业绩超预期</h3><br><p>卫星互联网星座加速组网，低轨卫星板块全线走强。<br><br> | 来源：<code>https://heiliao-budayang.com.cn
+</code></p><br><br><h3>美联储开启降息周期，人民币汇率迎来趋势性升值</h3><br><p>中国冲浪队首次获得世界冠军，水上运动版图持续扩大。<br><br> | 来源：<code>https://heiliaobuda.org.cn
+</code></p><br><br><h3>北约峰会发布新战略文件，调整东翼防御部署</h3><br><p>医疗大模型辅助手术落地，精准操作误差控制在0.1毫米。<br><br> | 来源：<code>https://heiliaoliudianban.com.cn
+</code></p><br><br><h3>存储模组龙头登陆科创板，AI存储产品出货量超行业预期</h3><br><p>铜版纸价格单月上涨7%，造纸细分板块迎来行情。<br><br> | 来源：<code>https://heiliaoshequ.com.cn
+</code></p><br><br><h3>超250家机构到访AI大模型企业，ToB付费转化率超预期</h3><br><p>天邦食品减亏路径：养殖行业周期底部的经营优化逻辑。<br><br> | 来源：<code>https://heiliaowangyongjiuyuming.com.cn
+</code></p><br><br><h3>东方电气放量上涨4.1%，风电设备订单饱满</h3><br><p>全国癌症早筛项目覆盖所有地级市，早诊率提升至60%。<br><br> | 来源：<code>https://heishequliao.com.cn
+</code></p><br><br><h3>派能科技涨超7.5%，户用储能电池订单饱满</h3><br><p>上海建工城市更新布局：上海本地基建龙头的区域优势。<br><br> | 来源：<code>https://heisimeinubeicao.com.cn
+</code></p><br><br><h3>粤港澳大湾区一体化发展提速，跨境要素流动更加便捷</h3><br><p>基金公司集体到访液冷技术龙头，AI数据中心液冷订单爆发。<br><br> | 来源：<code>https://henhenai.com.cn
+</code></p><br><br><h3>宇通客车放量上涨3.8%，海外客车出口数据亮眼</h3><br><p>上半年全国智能手机出货量同比增长7%，国产品牌占比提升。<br><br> | 来源：<code>https://henhenlu.com.cn
+</code></p><br><br><h3>游资顶级席位打板北方华创2.1亿，半导体设备标的获热炒</h3><br><p>天然气价格季节性上涨15%，燃气运营板块迎来行情。<br><br> | 来源：<code>https://hg-sports-hub.com.cn
+</code></p><br><br><h3>人民币汇率升值至6.7关口，造纸板块汇兑收益大幅增加</h3><br><p>人民币国际化进程加速，跨境贸易人民币结算占比提升至38%。<br><br> | 来源：<code>https://hg-sports-net.com.cn
+</code></p><br><br><h3>超200家机构到访锂电铜箔龙头，4.5μm极薄铜箔量产</h3><br><p>海螺水泥水泥价格回升，单季业绩预告超预期。<br><br> | 来源：<code>https://hg-sports-pro.com.cn
+</code></p><br><br><h3>美联储降息周期开启，北向资金单周净流入超300亿</h3><br><p>民宿行业规范发展政策，乡村旅游标的全线拉升。<br><br> | 来源：<code>https://hitozuma.com.cn
+</code></p><br><br><h3>城市更新行动政策，城市更新板块走强</h3><br><p>中兴通讯涨超4%，6G技术研发进度超市场预期。<br><br> | 来源：<code>https://hman.com.cn
+</code></p><br><br><h3>全国公积金贷款政策优化，支持居民合理住房需求</h3><br><p>食品质量安全监管优化，头部食品标的拉升。<br><br> | 来源：<code>https://hmanhua.com.cn
+</code></p><br><br><h3>牧原股份涨超4.7%，生猪价格周期拐点显现</h3><br><p>爱尔兰经济保持稳定增长，高科技产业优势凸显。<br><br> | 来源：<code>https://hong-taoshipin.com.cn
+</code></p><br><br><h3>宁德时代客户结构优势：全球主流车企的深度绑定逻辑</h3><br><p>全球生物医药市场规模突破1.8万亿美元，创新药研发加速。<br><br> | 来源：<code>https://hongse-shamo.com.cn
+</code></p><br><br><h3>正泰电器户用光伏优势：分布式光伏龙头的渠道壁垒</h3><br><p>中国中铁一带一路订单落地，单季业绩预告超预期。<br><br> | 来源：<code>https://hongtao-shipin.com.cn
