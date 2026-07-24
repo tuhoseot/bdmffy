@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分51秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国男子110米栏小将跑出12秒90，接班刘翔创造新历史</h3><br><p>中国神华高股息属性：能源龙头的长期配置价值分析。<br><br> | 来源：<code>https://wuyefuli.com.cn
+</code></p><br><br><h3>宁德时代突破关键压力位，后续上涨空间与支撑位一览</h3><br><p>全国候鸟栖息地保护网络建成，每年迁徙候鸟超千万只。<br><br> | 来源：<code>https://wuyefuli.net.cn
+</code></p><br><br><h3>养老金新进虚拟电厂标的，首次布局电力信息化赛道</h3><br><p>企业中长期贷款增速回升，宽信用效果逐步显现。<br><br> | 来源：<code>https://wuyefulipian.cn
+</code></p><br><br><h3>哈尔滨暑期游热度反超冬季，冰雪大世界夏季版开园迎客</h3><br><p>海尔智家高端产品占比提升，单季业绩预告超预期。<br><br> | 来源：<code>https://wuyefulishipin.cn
+</code></p><br><br><h3>鸡蛋价格季节性上涨10%，蛋鸡养殖板块盈利改善</h3><br><p>北向资金连续增持医美耗材龙头，近2月持仓增幅超40%。<br><br> | 来源：<code>https://wuyeshipin.cn
+</code></p><br><br><h3>全国居民健康素养水平提升至32%，健康中国行动成效显著</h3><br><p>科大讯飞AI技术落地：从技术研发到商业化变现的拐点。<br><br> | 来源：<code>https://wuyeshipin.net.cn
+</code></p><br><br><h3>高股息板块持续受宠：银行、保险、煤炭的配置价值分析</h3><br><p>头部机构组团到访核电设备龙头，新机组中标订单披露。<br><br> | 来源：<code>https://wuzaixianguankan.cn
+</code></p><br><br><h3>美联储降息后大宗商品集体上涨，有色板块全线异动</h3><br><p>工业硅价格触底反弹15%，光伏硅料成本端压力下降。<br><br> | 来源：<code>https://www-91.cn
+</code></p><br><br><h3>全国大学生就业帮扶行动启动，国企新增岗位超80万</h3><br><p>养老服务体系建设政策，养老产业标的全线走强。<br><br> | 来源：<code>https://www-91.com.cn
+</code></p><br><br><h3>美联储降息25BP，中概股集体暴涨带动A股联动</h3><br><p>赛力斯用户运营优势：华为赋能下的用户体验提升逻辑。<br><br> | 来源：<code>https://www-91com.com.cn
+</code></p><br><br><h3>隆基绿能光伏技术迭代：HPBC+TOPCon的技术领先性</h3><br><p>外资机构席位大额买入药明康德5亿，CXO赛道获外资加仓。<br><br> | 来源：<code>https://www-91n.com.cn
+</code></p><br><br><h3>全国200城启动夜间消费节，夜间经济规模突破15万亿</h3><br><p>国内大模型国际标准制定话语权提升，主导十余项国际标准。<br><br> | 来源：<code>https://www-91ncom.com.cn
+</code></p><br><br><h3>东方财富获机构席位净买入4.2亿，互联网券商获资金加仓</h3><br><p>赣锋锂业放量上涨，固态电池技术落地加速。<br><br> | 来源：<code>https://www17ccom.com.cn
+</code></p><br><br><h3>国产悬疑小说出海热销，海外读者追捧中国推理故事</h3><br><p>全球人口突破81亿，人口结构变化重塑经济格局。<br><br> | 来源：<code>https://www17ccomqicao.com.cn
+</code></p><br><br><h3>法律大模型上线，AI辅助律师办案效率提升2倍</h3><br><p>重庆路桥异动拉升2.4%，区域路桥业务盈利稳定。<br><br> | 来源：<code>https://www17cwang.com.cn
+</code></p><br><br><h3>杀虫剂价格上涨12%，农化产业链景气回升</h3><br><p>海外对冲基金组团调研白酒区域龙头，省外扩张增速曝光。<br><br> | 来源：<code>https://www91com.com.cn
+</code></p><br><br><h3>瓦楞纸价格上调4%，造纸板块迎来全面涨价催化</h3><br><p>全国二手房市场活跃度回升，成交量连续3个月环比上涨。<br><br> | 来源：<code>https://www91comvn.cn
+</code></p><br><br><h3>中兴通讯沿趋势线上行，通信板块的轮动机会</h3><br><p>虾产品价格上涨15%，水产细分板块盈利弹性释放。<br><br> | 来源：<code>https://www91ncn.cn
+</code></p><br><br><h3>西部大开发新规划出台，西部基建标的全线拉升</h3><br><p>央行加大结构性降息力度，精准支持数字经济领域。<br><br> | 来源：<code>https://www91ncn.com.cn
+</code></p><br><br><h3>全国地下水超采综合治理成效显著，水位回升超2米</h3><br><p>头部机构组团到访风电轴承龙头，大兆瓦轴承市占率提升。<br><br> | 来源：<code>https://www91ncom.cn
