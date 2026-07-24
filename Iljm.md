@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分02秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国围棋AI算法登顶世界，人工智能助力棋类运动发展</h3><br><p>全国健身气功交流大赛举办，覆盖超百万中老年爱好者。<br><br> | 来源：<code>https://shipin91.cn
+</code></p><br><br><h3>派能科技户用储能电池技术：全球户用储能龙头的壁垒</h3><br><p>深股通席位单日买入圣邦股份7500万，模拟芯片标的增持。<br><br> | 来源：<code>https://shipinmogu.com.cn
+</code></p><br><br><h3>全球供应链重构加速，东南亚制造业份额持续提升</h3><br><p>小鹏汽车智能驾驶优势：新势力车企的技术差异化路径。<br><br> | 来源：<code>https://shoujihuangyou.com.cn
+</code></p><br><br><h3>房贷利率动态调整机制优化，重点城市房贷利率进一步下行</h3><br><p>普惠小微贷款利率进一步下行，中小微企业盈利改善。<br><br> | 来源：<code>https://shuimitaowangzhan.com.cn
+</code></p><br><br><h3>实控人兜底式增持中药配方颗粒标的，员工参与比例超85%</h3><br><p>人民币汇率升值至6.7关口，造纸板块汇兑收益大幅增加。<br><br> | 来源：<code>https://si-hu.com.cn
+</code></p><br><br><h3>全球航空运输业完全复苏，客运量恢复至疫情前水平</h3><br><p>杭州马拉松开跑，3.5万跑者体验钱塘江赛道。<br><br> | 来源：<code>https://sibada-daren-ban-mantianxing-xingchen.com.cn
+</code></p><br><br><h3>二十国集团峰会召开，达成全球经济治理新共识</h3><br><p>中国跳水队世锦赛包揽全部金牌，梦之队零失误完美收官。<br><br> | 来源：<code>https://siji-she.org.cn
+</code></p><br><br><h3>纸价开启新一轮提价潮，造纸板块盈利迎来修复</h3><br><p>高管团队集体增持低空飞行器标的，合计增持超7000万。<br><br> | 来源：<code>https://siyingyuanhu.com.cn
+</code></p><br><br><h3>全国夜间体育赛事活动超千场，赛事经济带动周边消费</h3><br><p>中老铁路跨境游火爆，昆明至曼谷旅游团一票难求。<br><br> | 来源：<code>https://slgyouxiwangzhan.com.cn
+</code></p><br><br><h3>美的集团海外收入高增，前三季度业绩预增超25%</h3><br><p>钴价连续上涨13%，3C电池板块盈利提升。<br><br> | 来源：<code>https://sports-app-pro.com.cn
+</code></p><br><br><h3>保险资管扎堆调研绿电运营标的，电价弹性空间引热议</h3><br><p>上半年全国财政收入同比增长3.7%，民生支出占比超70%。<br><br> | 来源：<code>https://squirting.net.cn
+</code></p><br><br><h3>美联储宣布降息50BP超市场预期，全球风险资产暴涨</h3><br><p>箱板纸价格上涨5%，包装产业链盈利改善。<br><br> | 来源：<code>https://suboshi-vip-web.com
+</code></p><br><br><h3>全国氢能产业示范城市群落地，燃料电池汽车推广超12万辆</h3><br><p>汽车一体化压铸企业启动申购，9000T压铸机产能全球领先。<br><br> | 来源：<code>https://taiziqianqiuwanzai.com.cn
+</code></p><br><br><h3>游资知名席位打板长安汽车2.8亿，整车标的获短线资金热炒</h3><br><p>海洋牧场建设规划，海洋渔业板块集体上涨。<br><br> | 来源：<code>https://tang-xinpojieban.com.cn
+</code></p><br><br><h3>法国二季度GDP增长0.4%，经济逐步走出停滞</h3><br><p>东部地区率先实现高质量发展，人均GDP突破12万元。<br><br> | 来源：<code>https://tangguo-jiguan-tafang.com
+</code></p><br><br><h3>沙漠光伏基地建设规划，大基地光伏标的全线异动</h3><br><p>全国马术赛事超百场，马术运动从小众走向大众。<br><br> | 来源：<code>https://tangguo-paidui-tafang.com
+</code></p><br><br><h3>固态电池试点线投产，固态电池产业链集体异动</h3><br><p>赣锋锂业突破20日线，短期反弹窗口开启。<br><br> | 来源：<code>https://tangxinchuanmei.com.cn
+</code></p><br><br><h3>钛白粉开启新一轮涨价潮，全行业提价覆盖海内外市场</h3><br><p>坚果产品价格上涨5%，休闲食品龙头盈利改善。<br><br> | 来源：<code>https://tangxinshipinzaixianguankan.com.cn
+</code></p><br><br><h3>跨境电商出口高增，跨境电商板块全线爆发</h3><br><p>良渚古城遗址新发现大型水利工程，实证5000年文明史。<br><br> | 来源：<code>https://tanxiongluru.com.cn
+</code></p><br><br><h3>中秋国庆旅游数据超预期，旅游酒店板块异动</h3><br><p>美联储降息25BP，中概股集体暴涨带动A股联动。<br><br> | 来源：<code>https://taohong-shipin.com.cn
