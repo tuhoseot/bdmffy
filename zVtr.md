@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分12秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>多地优化楼市限购政策，取消二环外住房限购限制</h3><br><p>京沪高铁暑运客流超预期，单季业绩预增超100%。<br><br> | 来源：<code>https://eluosimama.com.cn
+</code></p><br><br><h3>外资单日扫货海尔智家8亿，白电龙头外资持仓稳步提升</h3><br><p>五粮液中秋动销超预期，单季业绩预告超预期。<br><br> | 来源：<code>https://erqiang-ru-yi-dong-su-xiao-yue-xiaoshuo.com.cn
+</code></p><br><br><h3>小鹏汽车异动拉升9.2%，新车型交付量超预期</h3><br><p>国内研学旅行市场规模破千亿，覆盖超5000万中小学生。<br><br> | 来源：<code>https://fabuyelanse.com.cn
+</code></p><br><br><h3>新疆暑期游客量突破5000万人次，西部文旅市场爆发</h3><br><p>产业资本集中增持休闲食品龙头，线下渠道复购改善获布局。<br><br> | 来源：<code>https://fandaoai.cn
+</code></p><br><br><h3>稀土价格政策收储后上涨12%，稀土永磁板块集体异动</h3><br><p>教育部发布新规，义务教育阶段课后服务实现全覆盖。<br><br> | 来源：<code>https://fanhao-ku.com.cn
+</code></p><br><br><h3>央行表态不搞"大水漫灌"，精准降息支持实体经济重点领域</h3><br><p>产业基金大手笔增持国产EDA企业，助力核心技术研发突破。<br><br> | 来源：<code>https://feifan-ent-pro.com.cn
+</code></p><br><br><h3>全国红树林面积增至3万公顷，成为海洋生态保护标杆</h3><br><p>中远海控集运运价反弹，单季业绩预告环比大增。<br><br> | 来源：<code>https://feiji-bei.com.cn
+</code></p><br><br><h3>液态奶价格上涨3%，乳制品板块迎来涨价催化</h3><br><p>降准释放长期资金支持新能源，绿电板块迎来定向利好。<br><br> | 来源：<code>https://feilubin-chire-zhi-ye-dianying.com.cn
+</code></p><br><br><h3>低空旅游市场爆发，上半年直升机观光订单同比增长200%</h3><br><p>10年期国债收益率下行至2.5%以下，权益资产吸引力提升。<br><br> | 来源：<code>https://feixiongbaozangku.com.cn
+</code></p><br><br><h3>腾讯云大模型生态开放，接入超十万第三方应用</h3><br><p>维生素A价格单月上涨18%，饲料添加剂板块迎来行情。<br><br> | 来源：<code>https://feng-jian-you-mei.com.cn
+</code></p><br><br><h3>企业中长期贷款利率创历史新低，制造业资本开支回升</h3><br><p>定向降息支持制造业高端化，工业母机板块获定向利好。<br><br> | 来源：<code>https://feng-jian.com.cn
+</code></p><br><br><h3>知名私募调研钙钛矿设备标的，核心设备交付周期缩短</h3><br><p>家电以旧换新政策加码，白电板块集体反弹。<br><br> | 来源：<code>https://fenghuangsaishi.com.cn
+</code></p><br><br><h3>LPR非对称下调，银行净息差压力边际缓解</h3><br><p>全国江豚种群数量突破2000头，长江微笑天使重现。<br><br> | 来源：<code>https://fenglouxinxi.cn
+</code></p><br><br><h3>洽洽食品坚果品类拓展：传统炒货企业的成长第二曲线</h3><br><p>理想汽车单季盈利超20亿，新势力车企业绩超预期。<br><br> | 来源：<code>https://fengyuling.com.cn
+</code></p><br><br><h3>中国与海湾国家合作深化，能源、金融多领域协同发展</h3><br><p>2026年体育强国建设成效显著，全民健身与全民健康深度融合。<br><br> | 来源：<code>https://free-zaixian-cheng-web.com.cn
+</code></p><br><br><h3>国内大模型产业联盟成立，联合攻关核心技术短板</h3><br><p>中国男子射击队世锦赛斩获6金，奥运席位全部拿满。<br><br> | 来源：<code>https://fujianu-jiejie-weiba-dongman.com.cn
+</code></p><br><br><h3>全国太湖流域蓝藻水华防控成效显著，水质稳定达标</h3><br><p>全国绿色出行创建行动推进，超百个城市建成绿色交通体系。<br><br> | 来源：<code>https://fuli-ba.cn
+</code></p><br><br><h3>白卡纸价格连续上涨8%，白卡纸龙头盈利弹性释放</h3><br><p>全国城市餐厨垃圾处理能力突破10万吨/日，资源化利用。<br><br> | 来源：<code>https://fuli-daohang.com.cn
+</code></p><br><br><h3>中国象棋队世锦赛全部夺冠，传统棋类运动长盛不衰</h3><br><p>酸奶产品价格上调4%，乳业细分板块盈利提升。<br><br> | 来源：<code>https://fuli-ji.com.cn
+</code></p><br><br><h3>保险资管举牌工业软件龙头，研发设计软件国产替代获重仓</h3><br><p>北向资金连续加仓通威股份，光伏龙头获外资长线布局。<br><br> | 来源：<code>https://fuli-shipin.cn
