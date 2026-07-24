@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分08秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>长城汽车品类创新能力：坦克+欧拉的产品差异化逻辑</h3><br><p>苹果Vision Pro国内开售，MR产业链迎来行情催化。<br><br> | 来源：<code>https://caoliushequyaoqingma.cn
+</code></p><br><br><h3>大北农异动拉升3.7%，种业业务贡献新增量</h3><br><p>机构专用席位净买入智飞生物8300万，疫苗龙头获长线加仓。<br><br> | 来源：<code>https://caoliushequzaixianguankan.cn
+</code></p><br><br><h3>尿素价格单月上涨9%，化肥板块迎来产品涨价催化</h3><br><p>降准释放长期资金支持基建，建筑板块迎来估值修复。<br><br> | 来源：<code>https://caoliushequzuixin.cn
+</code></p><br><br><h3>梅花生物异动拉升3.1%，氨基酸产品价格反弹</h3><br><p>大模型在文创领域应用，AI生成剧本、音乐成行业常态。<br><br> | 来源：<code>https://caoliushequzuixindizhi.cn
+</code></p><br><br><h3>宝钢股份企稳回升，钢铁行业盈利预期边际改善</h3><br><p>国内大模型出海东南亚，服务超百万当地企业。<br><br> | 来源：<code>https://caoliushequzuixinwangzhi.cn
+</code></p><br><br><h3>存量房贷利率集中下调，居民消费能力有望边际改善</h3><br><p>央行加大公开市场操作力度，资金面维持平稳宽松。<br><br> | 来源：<code>https://caoliushipin.cn
+</code></p><br><br><h3>电源芯片价格上涨7%，模拟芯片板块景气回升</h3><br><p>比亚迪全产业链布局：从电池到整车的垂直整合优势。<br><br> | 来源：<code>https://caoliuxinshidai.cn
+</code></p><br><br><h3>2026年上半年国内旅游人次突破30亿，同比增长18%</h3><br><p>全国全民健身日活动覆盖超亿人次，群众体育热情高涨。<br><br> | 来源：<code>https://caoliuyaoqingma.cn
+</code></p><br><br><h3>中国跳水队世锦赛包揽全部金牌，梦之队零失误完美收官</h3><br><p>社保基金新进重仓钙钛矿光伏标的，持仓占比达4.2%。<br><br> | 来源：<code>https://caoliuzuixin.cn
+</code></p><br><br><h3>公募基金集中调研智慧矿山龙头，煤矿智能化改造订单翻倍</h3><br><p>NBA总决赛凯尔特人4-2夺冠，塔图姆全票当选FMVP。<br><br> | 来源：<code>https://caoliuzuixindizhi.cn
+</code></p><br><br><h3>券商研究所扎堆调研数字人民币标的，线下场景覆盖突破亿级</h3><br><p>国产现实题材电影票房占比超60%，贴近生活引发全民共鸣。<br><br> | 来源：<code>https://caomei-shipin-se.com.cn
+</code></p><br><br><h3>电阻产品价格上调4%，被动元件板块迎来行情</h3><br><p>定向降息支持绿色电力，绿电运营板块获定向利好。<br><br> | 来源：<code>https://caomei-shipin.cn
+</code></p><br><br><h3>高管团队集体增持宠物食品龙头，合计增持超6500万</h3><br><p>杭州亚运会场馆全面开放，年接待市民游客超千万人次。<br><br> | 来源：<code>https://caomei-shipin.com.cn
+</code></p><br><br><h3>央行超额续作MLF并降息5BP，流动性宽松信号明确</h3><br><p>北向资金连续加仓隆基绿能，光伏龙头获外资长线布局。<br><br> | 来源：<code>https://caomei-shipinapp.cn
+</code></p><br><br><h3>全球新能源投资突破2万亿美元，中国占比超40%</h3><br><p>超250家机构到访AI大模型企业，ToB付费转化率超预期。<br><br> | 来源：<code>https://caomeidaohang.cn
+</code></p><br><br><h3>美联储降息后全球流动性宽松，成长板块估值抬升</h3><br><p>存款利率市场化调整机制优化，银行负债端成本进一步压降。<br><br> | 来源：<code>https://caomeishipinzaixianbofang.cn
+</code></p><br><br><h3>大模型开源社区活跃，国产开源大模型数量破300款</h3><br><p>全国朱鹮种群数量突破1万只，从7只恢复至广泛分布。<br><br> | 来源：<code>https://caomeishipinzaixianguankan.cn
+</code></p><br><br><h3>机构+北向合力买入兆易创新1.2亿，存储芯片标的获资金布局</h3><br><p>农产品深加工扶持政策，农产品加工标的全线拉升。<br><br> | 来源：<code>https://caomeishipinzaixianguankanmianfei.cn
+</code></p><br><br><h3>鱼类产品价格上调10%，渔业板块迎来行情</h3><br><p>中国花游队世锦赛集体项目夺冠，实现金牌零的突破。<br><br> | 来源：<code>https://caoshequdizhiyidizhier.cn
+</code></p><br><br><h3>全国城市污水处理率达98%，污泥无害化处理率超90%</h3><br><p>中秋国庆旅游数据超预期，旅游酒店板块异动。<br><br> | 来源：<code>https://cc91.cn
