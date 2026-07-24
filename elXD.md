@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分14秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>黄山暑期单日客流破4万，山顶酒店提前半个月售罄</h3><br><p>中国男子举重队世锦赛打破5项世界纪录，统治力依旧。<br><br> | 来源：<code>https://qiyiguo-vip-new.com
+</code></p><br><br><h3>养老金新进创新药龙头，布局创新管线长期成长逻辑</h3><br><p>钴价连续上涨13%，3C电池板块盈利提升。<br><br> | 来源：<code>https://rcstqm.cn
+</code></p><br><br><h3>多地景区推出“一票通”联票，覆盖周边十余景点让利游客</h3><br><p>东方电缆异动拉升5.2%，海缆订单持续落地。<br><br> | 来源：<code>https://re-jiujiu.com.cn
+</code></p><br><br><h3>中国男子篮球队亚洲杯闯入决赛，时隔10年重返领奖台</h3><br><p>暑期亲子游订单同比增长45%，研学旅行成为消费新热点。<br><br> | 来源：<code>https://reg-bonus-vip.com.cn
+</code></p><br><br><h3>汽车下乡补贴政策出台，自主车企标的全线上涨</h3><br><p>中国铁人三项队亚洲杯夺冠，耐力项目实力跻身亚洲前列。<br><br> | 来源：<code>https://ren-qi.com.cn
+</code></p><br><br><h3>恩捷股份隔膜技术壁垒：锂电池隔膜全球龙头的份额优势</h3><br><p>全国心理健康服务体系覆盖所有高校，心理疏导惠及千万学生。<br><br> | 来源：<code>https://ren-shan-jiao.com.cn
+</code></p><br><br><h3>北向资金连续增持智能驾驶龙头，近1月持仓增幅超30%</h3><br><p>首套房贷款利率突破2.9%，刚需购房成本创历史新低。<br><br> | 来源：<code>https://renqidonghua.com.cn
+</code></p><br><br><h3>草原生态保护政策，草牧业板块全线拉升</h3><br><p>全国土壤污染状况详查完成，受污染耕地安全利用率达95%。<br><br> | 来源：<code>https://renqilieren.com.cn
+</code></p><br><br><h3>中国中车全球轨道交通布局：一带一路带来的增量空间</h3><br><p>民宿行业规范发展政策，乡村旅游标的全线拉升。<br><br> | 来源：<code>https://renqilierenmanhua.com.cn
+</code></p><br><br><h3>容百科技高镍正极技术：锂电高镍化趋势下的龙头受益</h3><br><p>海洋强国建设新规划发布，海洋经济总量突破9万亿元。<br><br> | 来源：<code>https://renqiwuliaodonghua.com.cn
+</code></p><br><br><h3>生活用纸价格上调4%，生活用纸龙头盈利提升</h3><br><p>云从科技人机协同大模型3.0发布，赋能人机交互场景。<br><br> | 来源：<code>https://renren-chucai-official.com
+</code></p><br><br><h3>产业资本集中增持锂电铜箔龙头，极薄铜箔技术获资本布局</h3><br><p>良渚古城遗址新发现大型水利工程，实证5000年文明史。<br><br> | 来源：<code>https://ri-han-wuma.com.cn
+</code></p><br><br><h3>国家统计局发布新动能指数，同比增长17%创新高</h3><br><p>高管团队集体调研后增持冷链物流标的，合计增持超8000万。<br><br> | 来源：<code>https://ri-han-zaixian.com.cn
+</code></p><br><br><h3>特变电工新能源盈利高增，单季业绩预告超预期</h3><br><p>医疗器械创新绿色通道，创新器械板块异动。<br><br> | 来源：<code>https://ri-han-zhongwenzimu.com.cn
+</code></p><br><br><h3>全国城市慢行系统建设提速，绿道总里程突破15万公里</h3><br><p>养老金入市比例提升，养老金重仓标的走强。<br><br> | 来源：<code>https://ri-han.com.cn
+</code></p><br><br><h3>广深铁路放量上涨3.1%，铁路客运收入回暖</h3><br><p>一带一路订单释放：中字头基建的估值重塑空间解析。<br><br> | 来源：<code>https://ri-hanjingpin.com.cn
+</code></p><br><br><h3>云南泼水节暑期活动重启，单日参与游客突破50万人次</h3><br><p>超300家机构扎堆调研AI算力龙头，核心业务数据首次披露。<br><br> | 来源：<code>https://ri-hanmianfeizaixianguankan.com.cn
+</code></p><br><br><h3>地方国资战略入股种业龙头，助力生物育种商业化落地</h3><br><p>海外对冲基金组团调研白酒区域龙头，省外扩张增速曝光。<br><br> | 来源：<code>https://ri-hanoumei.com.cn
+</code></p><br><br><h3>10年期国债收益率下行，保险板块配置压力边际缓解</h3><br><p>海螺水泥成本控制能力：水泥行业龙头的长期盈利韧性。<br><br> | 来源：<code>https://ri-hanshipin.com.cn
+</code></p><br><br><h3>泰山暑期单日登顶客流破6万，夜间登山游客占比超70%</h3><br><p>体育旅游市场爆发，上半年马拉松赛事带动旅游消费超百亿。<br><br> | 来源：<code>https://ri-hanwuma.com.cn
