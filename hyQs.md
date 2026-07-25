@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 14时31分32秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>天齐锂业债务优化：高负债锂矿龙头的财务健康度改善</h3><br><p>基金公司集体到访氢能龙头，燃料电池车推广进度超预期。<br><br> | 来源：<code>www.asiaillustrator.com
+</code></p><br><br><h3>保险资管扎堆调研机器人减速器标的，产能释放进度披露</h3><br><p>央行加大逆回购操作并下调利率，短期流动性持续充裕。<br><br> | 来源：<code>www.ary-eye.com
+</code></p><br><br><h3>央行下调MLF利率10个基点，引导市场利率下行</h3><br><p>中国女子现代五项队世锦赛夺冠，拿到巴黎奥运入场券。<br><br> | 来源：<code>www.dearain.cn
+</code></p><br><br><h3>碳化硅衬底标的登陆科创板，6英寸衬底产能全球领先</h3><br><p>知名私募调研量子通信标的，干线网络建设落地节奏披露。<br><br> | 来源：<code>www.boorman.cn
+</code></p><br><br><h3>五粮液中秋动销超预期，单季业绩预告超预期</h3><br><p>外资资管连续加仓光伏N型电池标的，近3月持仓占比提升至8%。<br><br> | 来源：<code>www.zhuweiguoji.cn
+</code></p><br><br><h3>璞泰来涨超5.0%，负极材料行业格局优化</h3><br><p>飞天茅台批价突破2900元，白酒龙头盈利超预期。<br><br> | 来源：<code>www.yuzt.cn
+</code></p><br><br><h3>量子信息产业规划发布，量子通信标的全线拉升</h3><br><p>炒股最难的不是买对，而是在波动里守住正确的持仓。<br><br> | 来源：<code>www.dg-hhjx.cn
+</code></p><br><br><h3>美的集团创年内新高，多头排列下的趋势延续性</h3><br><p>国产EDA工具实现全流程覆盖，半导体软件标的走强。<br><br> | 来源：<code>www.6gt8.cn
+</code></p><br><br><h3>产业资本连续增持智能电网标的，特高压产业链获资本布局</h3><br><p>浪潮信息算力生态优势：AI服务器龙头的产业链协同能力。<br><br> | 来源：<code>www.gzsyd.cn
+</code></p><br><br><h3>思源电气涨超4.5%，电网设备出口数据亮眼</h3><br><p>降准降息组合拳落地，大金融板块率先迎来行情催化。<br><br> | 来源：<code>www.xinyucai.cn
+</code></p><br><br><h3>中际旭创光模块技术：数通光模块全球龙头的份额逻辑</h3><br><p>全国社会体育指导员超300万人，指导群众科学健身。<br><br> | 来源：<code>www.edubee.cn
+</code></p><br><br><h3>比亚迪Q3销量破百万，业绩预告同比翻倍</h3><br><p>多氟多涨超5.2%，六氟磷酸锂价格触底反弹。<br><br> | 来源：<code>www.rlgps.cn
+</code></p><br><br><h3>万科A地产龙头抗风险能力：行业调整期的稳健经营逻辑</h3><br><p>游资顶级席位打板亨通光电5400万，海缆标的获热炒。<br><br> | 来源：<code>www.tlgsb.cn
+</code></p><br><br><h3>平遥古城暑期推出实景演出，夜间场次上座率超100%</h3><br><p>成渝双城经济圈建设三年成效显著，GDP总量突破8万亿元。<br><br> | 来源：<code>www.btnrl.com
+</code></p><br><br><h3>钙钛矿光伏组件效率破纪录，新型光伏标的拉升</h3><br><p>维生素A价格单月上涨18%，饲料添加剂板块迎来行情。<br><br> | 来源：<code>www.le-service-divin.com
+</code></p><br><br><h3>沪股通席位单日买入金风科技1亿，风电龙头获外资增持</h3><br><p>北向资金大额增持中国平安，保险龙头外资持仓创阶段新高。<br><br> | 来源：<code>www.zzwtest.com
+</code></p><br><br><h3>国铁集团旗下标的异动，铁路改革预期持续升温</h3><br><p>全球5G用户突破30亿，中国市场占比超一半。<br><br> | 来源：<code>www.cztxwl.cn
+</code></p><br><br><h3>游戏版号常态化发放，游戏板块持续异动</h3><br><p>上海建工城市更新布局：上海本地基建龙头的区域优势。<br><br> | 来源：<code>www.zzlxgg.com.cn
+</code></p><br><br><h3>长缆科技高压电缆技术：电网设备细分龙头的壁垒解析</h3><br><p>药明康德异动拉升5.2%，海外新药订单持续落地。<br><br> | 来源：<code>www.archicourse.cn
+</code></p><br><br><h3>隆平高科转基因优势：种业商业化政策放开下的龙头受益</h3><br><p>保险资管连续增持酒店连锁龙头，消费复苏获机构长期配置。<br><br> | 来源：<code>www.geeksuper.cn
