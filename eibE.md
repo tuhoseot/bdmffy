@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 16时19分26秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>天津建投异动拉升2.8%，天津基建投资持续增长</h3><br><p>全国社区运动会覆盖千城，群众家门口参与体育赛事。<br><br> | 来源：<code>s9tattoo.com
+</code></p><br><br><h3>北向资金大额扫货恩捷股份1.4亿，隔膜龙头获外资流入</h3><br><p>全国海洋生态环境质量稳中向好，一类海水比例达78%。<br><br> | 来源：<code>yilianyoumeng.com
+</code></p><br><br><h3>光伏组件出口创历史新高，光伏海外链标的走强</h3><br><p>MLCC价格单月上涨5%，电容龙头盈利弹性释放。<br><br> | 来源：<code>www.zhongyichufang.cn
+</code></p><br><br><h3>涪陵榨菜异动拉升3.8%，产品提价传导顺利</h3><br><p>北向资金大额增持五粮液，白酒龙头外资持仓环比提升。<br><br> | 来源：<code>www.muzhien.cn
+</code></p><br><br><h3>头部券商调研固态电池标的，下一代技术落地时间表曝光</h3><br><p>北向资金单日买入三安光电9000万，LED龙头获外资持续流入。<br><br> | 来源：<code>www.jiezhishan.cn
+</code></p><br><br><h3>中国书法申遗成功，传统艺术走向世界舞台</h3><br><p>时代新材放量上涨4.0%，轨道交通零部件订单高增。<br><br> | 来源：<code>www.qinjin365.cn
+</code></p><br><br><h3>北方稀土突破前期平台，短线弹性有望释放</h3><br><p>全国攀岩联赛覆盖20城，攀岩运动成年轻人新宠。<br><br> | 来源：<code>www.siqiyes.cn
+</code></p><br><br><h3>储能大项目集中并网，大储板块迎来行情催化</h3><br><p>全国足球场数量超20万个，人均足球场地面积达1.8平方米。<br><br> | 来源：<code>www.siqixue.cn
+</code></p><br><br><h3>保险资管扎堆调研煤炭智能化龙头，煤矿智能化改造渗透率</h3><br><p>张伟丽卫冕UFC女子草量级冠军，成功守住金腰带。<br><br> | 来源：<code>www.cunyinbao.cn
+</code></p><br><br><h3>定向降息支持制造业高端化，工业母机板块获定向利好</h3><br><p>中国男子射箭队世锦赛团体夺冠，打破韩国长期垄断。<br><br> | 来源：<code>www.iamz.cn
+</code></p><br><br><h3>亿纬锂能放量上涨6.4%，储能电池出货量翻倍</h3><br><p>2026年AI产业赋能经济增长超万亿，成为数字经济核心引擎。<br><br> | 来源：<code>www.yifanwu.cn
+</code></p><br><br><h3>基金公司集体到访人形电机龙头，力矩电机产能释放数据</h3><br><p>国内AI人才培养体系完善，高校新增AI相关专业超千个。<br><br> | 来源：<code>www.michaelyang.cn
+</code></p><br><br><h3>美联储降息25BP符合市场预期，全球股市迎来普涨行情</h3><br><p>圣邦股份模拟芯片布局：国产模拟芯片龙头的成长路径。<br><br> | 来源：<code>www.bengcuan.cn
+</code></p><br><br><h3>全国太湖蓝藻水华预警系统升级，提前7天精准预判</h3><br><p>西班牙经济增速达2.8%，南欧经济表现亮眼。<br><br> | 来源：<code>www.zn-edu.cn
+</code></p><br><br><h3>宝钢股份企稳回升，低位标的的补涨机会分析</h3><br><p>民用无人机管理新规，无人机产业链全线走强。<br><br> | 来源：<code>www.imrok.com.cn
+</code></p><br><br><h3>铂价上涨10%，燃料电池催化剂板块迎来涨价催化</h3><br><p>保利发展央企销售高增，前三季度业绩预增超20%。<br><br> | 来源：<code>www.shutaotc.cn
+</code></p><br><br><h3>丹麦经济稳健增长，风电产业全球领先</h3><br><p>上海自贸区扩区方案落地，引领更高水平对外开放。<br><br> | 来源：<code>www.easome.cn
+</code></p><br><br><h3>中国冲浪队首次获得世界冠军，水上运动版图持续扩大</h3><br><p>OpenAI发布多模态大模型，AI应用板块集体异动。<br><br> | 来源：<code>www.toolzhe.cn
+</code></p><br><br><h3>合肥推出“科里科气”文旅线路，科技研学游订单暴涨</h3><br><p>中国中车全球轨道交通布局：一带一路带来的增量空间。<br><br> | 来源：<code>www.silvertimes.cn
+</code></p><br><br><h3>全国碳捕集利用与封存项目年处理能力突破1500万吨</h3><br><p>WTT新乡世界杯，孙颖莎卫冕女单冠军实现赛季大满贯。<br><br> | 来源：<code>www.ahhaiquan.cn
