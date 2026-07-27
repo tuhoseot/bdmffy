@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分19秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>普惠小微贷款利率进一步下行，中小微企业盈利改善</h3><br><p>AI办公软件渗透率超60%，成为职场人必备工具。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>高标准农田建设规划，农田基建板块集体上涨</h3><br><p>国企改革三年行动收官，央企营收同比增长6.8%。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>日本央行结束负利率政策，日元汇率回升至130关口</h3><br><p>天齐锂业触底反弹，锂矿价格企稳带动板块情绪。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>全国城市建成区绿化覆盖率达42%，人均公园绿地面积15平方米</h3><br><p>陕西煤业高股息兑现，单季业绩预告超预期。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>中国电建异动拉升3.3%，新能源电站装机量高增</h3><br><p>跨境支付龙头登陆港股，海外结算规模年增速超80%。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>AI实时翻译耳机普及，跨语言沟通障碍彻底打破</h3><br><p>降准释放长期资金支持新能源，绿电板块迎来定向利好。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>1年期LPR下调降低企业短期融资成本，经营活力提升</h3><br><p>瓦楞纸价格上调4%，造纸板块迎来全面涨价催化。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>国内大模型人才缺口破百万，AI相关专业毕业生供不应求</h3><br><p>小鹏汽车异动拉升9.2%，新车型交付量超预期。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>闻泰科技ODM+半导体双轮驱动：平台型企业的成长逻辑</h3><br><p>全国海洋生态环境质量稳中向好，一类海水比例达78%。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>五粮液品牌价值分析：浓香型白酒龙头的估值逻辑</h3><br><p>全国马拉松赛事超500场，全年参赛人次破700万。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>通威股份硅料成本优势：光伏全产业链龙头的盈利韧性</h3><br><p>2026年全国体育产业总规模突破4万亿，全民健身蔚然成风。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>千兆城市建设全覆盖，光通信板块走强</h3><br><p>实控人溢价15%增持碳纤维企业，传递长期发展信心。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>中国乒乓球队包揽世乒赛全部金牌，统治力延续数十年</h3><br><p>上半年全国财政收入同比增长3.7%，民生支出占比超70%。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>全国汽车拉力赛超20站，赛车运动爱好者规模破百万</h3><br><p>国务院出台6方面24条政策，进一步扩大对外开放。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>焦炭价格开启第五轮提涨，焦化板块盈利迎来改善</h3><br><p>房贷利率下调后二手房成交回暖，家居家电需求回升。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>上半年全国智能手机出货量同比增长7%，国产品牌占比提升</h3><br><p>华友钴业异动拉升5.3%，新能源金属需求回暖。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>产业基金组团调研后集中增持医药流通龙头，合计投入超6亿</h3><br><p>飞天茅台批价突破2900元，白酒龙头盈利超预期。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>游戏大模型落地，AI实时生成游戏场景大幅降低开发成本</h3><br><p>中际旭创再创阶段新高，光模块赛道高景气延续。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>罕见病药物医保激励政策，罕见病药标的走强</h3><br><p>全国快递包装绿色转型推进，可降解材料使用率达85%。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>全国城市轨道交通全部实现电气化，绿色出行比例超70%</h3><br><p>全国黄土高原水土流失治理率达70%，黄河泥沙含量锐减。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>东方财富互联网券商优势：流量变现的长期成长空间</h3><br><p>头部券商到访光伏胶膜标的，原材料成本下降弹性曝光。<br><br> | 来源：<code>www.tiantian8.com
