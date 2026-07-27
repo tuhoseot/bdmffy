@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分54秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>煤炭价格企稳回升，煤炭高股息标的集体上涨</h3><br><p>游资知名席位联手买入登海种业5600万，种业标的获追捧。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>知名私募调研光伏N型电池标的，TOPCon电池转换效率突破26%</h3><br><p>新能源汽车销量上半年突破550万辆，市场渗透率达48%。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>知名私募调研钙钛矿设备标的，核心设备交付周期缩短</h3><br><p>机构+北向合力买入当升科技8200万，正极材料标的布局。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>产业基金组团调研后集中增持风电轴承龙头，合计投入超4亿</h3><br><p>超230家机构到访工业软件龙头，研发设计软件付费转化率。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>产业资本连续增持储能温控龙头，产业链上下游协同布局</h3><br><p>国家集采冠脉支架降价后，全国手术量同比增长30%惠及患者。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>氢能产业中长期规划，氢能源全板块集体上涨</h3><br><p>北向资金单日买入正泰电器4700万，户用光伏龙头获流入。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>海外资管组团调研光伏支架标的，跟踪支架海外渗透率提升</h3><br><p>中国电建新能源运营盈利高增，单季业绩预增超25%。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>通用人工智能创新平台落地，大模型标的拉升</h3><br><p>存款利率下调后居民储蓄搬家，A股新增开户数环比大增。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>国产航母新进展，军工船舶板块集体异动</h3><br><p>全国儿童青少年近视率同比下降2%，视力防控成效显现。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>钢材价格单月上涨7%，钢铁板块迎来产品涨价催化</h3><br><p>成都推出“文旅+美食”线路，带动餐饮营收同比增长50%。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>全国戒烟服务门诊覆盖所有三甲医院，吸烟率持续下降</h3><br><p>重庆洪崖洞暑期客流创新高，网红打卡点日均接待超15万。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>全国县域旅游百强县榜单发布，江浙地区占比超六成</h3><br><p>外资机构集中调研存储芯片龙头，海外订单情况成焦点。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>外资资管举牌固态电解质企业，下一代电池技术获外资重仓</h3><br><p>春节档票房创历史新高，影视传媒板块集体走强。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>海大集团饲料技术优势：水产饲料龙头的研发壁垒</h3><br><p>全国小微企业贷款余额突破60万亿元，融资成本进一步下降。<br><br> | 来源：<code>www.chtea.ac.cn
+</code></p><br><br><h3>知名私募大手笔增持储能电池标的，海外户储订单获资本布局</h3><br><p>全国碳捕集利用与封存项目年处理能力突破1500万吨。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>中国女排世界联赛总决赛夺冠，重返世界第一排名</h3><br><p>产业基金组团调研后集中增持氢能储运龙头，合计投入超5亿。<br><br> | 来源：<code>www.azi-cbt.com
+</code></p><br><br><h3>养老金新进AI芯片设计标的，布局大模型推理芯片赛道</h3><br><p>央行表态适时加大政策力度，后续降准降息仍有空间。<br><br> | 来源：<code>www.huihuabang.com
+</code></p><br><br><h3>外资资管连续加仓光伏N型电池标的，近3月持仓占比提升至8%</h3><br><p>国际金价创历史新高，黄金珠宝标的集体上涨。<br><br> | 来源：<code>www.jieruit.com
+</code></p><br><br><h3>国足世预赛客场2-1逆转日本，创造历史首次客场击败对手</h3><br><p>央行超额续作MLF并降息5BP，流动性宽松信号明确。<br><br> | 来源：<code>www.bjgengke.com
+</code></p><br><br><h3>中国女子跆拳道队世锦赛斩获4金，奥运备战状态出色</h3><br><p>三一重工突破半年线，中期趋势逐步转强。<br><br> | 来源：<code>www.kayhaerland.com
+</code></p><br><br><h3>北向资金举牌碳化硅企业，车规级半导体获外资重仓</h3><br><p>机构资金集中买入阳光电源3.8亿，逆变器龙头获机构抱团。<br><br> | 来源：<code>www.gzly118.com
