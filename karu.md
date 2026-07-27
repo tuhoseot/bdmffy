@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分16秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>卫星互联网星座加速组网，低轨卫星板块全线走强</h3><br><p>医美行业合规化政策，头部医美标的拉升。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>央行下调再贷款利率，精准支持科技创新领域</h3><br><p>三亚暑期酒店入住率超98%，高端度假产品订单暴涨。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>NBA季后赛中国球员首次夺冠，创造亚洲篮球历史</h3><br><p>游资知名席位联手买入登海种业5600万，种业标的获追捧。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>腾讯混元大模型企业服务升级，助力政务、金融行业数字化</h3><br><p>箱板纸价格上涨5%，包装产业链盈利改善。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>中际旭创再创历史新高，800G光模块份额超70%</h3><br><p>实控人溢价15%增持碳纤维企业，传递长期发展信心。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>证监会启动全面注册制优化改革，提升资本市场包容性</h3><br><p>招商银行零售银行优势：国内零售银行龙头的经营质量。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>大模型在能源领域应用，电网调度效率提升25%</h3><br><p>阳光电源海外逆变器爆发，前三季度业绩预增110%。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>全国垃圾分类覆盖率达92%，资源化利用率提升至38%</h3><br><p>中国田径世锦赛斩获5金，男子百米接力打破亚洲纪录。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>中芯国际管理层优势：半导体制造龙头的经营效率提升</h3><br><p>券商研究所扎堆调研算力租赁标的，机柜上架率突破95%。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>鸿蒙生态持续升温：相关产业链标的受益顺序解析</h3><br><p>海尔智家稳步上行，白电行业格局持续优化。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>盈利的核心逻辑：在低估时布局，在逻辑兑现时离场</h3><br><p>国内民宿市场规模破万亿，精品民宿均价同比上涨20%。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>林业碳汇交易政策，林业运营标的全线异动</h3><br><p>公募基金集中调研智慧矿山龙头，煤矿智能化改造订单翻倍。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>外资资管集中调研中药配方颗粒标的，医院端渗透率超预期</h3><br><p>页岩气勘探开发政策，页岩气开采板块走强。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>山东高速区域路网优势：山东公路运营龙头的稳健经营</h3><br><p>美联储降息25BP，中概股集体暴涨带动A股联动。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>华为星闪技术大规模商用，相关产业链标的领涨</h3><br><p>五粮液品牌价值分析：浓香型白酒龙头的估值逻辑。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>全国癌症早筛项目覆盖所有地级市，早诊率提升至60%</h3><br><p>洽洽食品坚果业务高增，前三季度业绩预增超30%。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>控股股东耗资5.2亿增持智慧交通标的，回购股份用于股权激励</h3><br><p>铜版纸价格单月上涨7%，造纸细分板块迎来行情。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>中国中铁一带一路布局：海外基建订单的长期增长逻辑</h3><br><p>机构席位大额买入通威股份2.9亿，光伏龙头获长线资金布局。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>国产EDA龙头登陆科创板，核心技术打破海外垄断引市场关注</h3><br><p>新增开户数环比大增，互联网券商板块全线走强。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>国产现实题材电影票房占比超60%，贴近生活引发全民共鸣</h3><br><p>政策性银行加大降息力度，基建项目融资成本大幅下降。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>全国矿山生态修复面积年度完成超2万公顷，废弃矿山变绿洲</h3><br><p>游资顶级席位联手买入中芯国际7亿，半导体龙头获热捧。<br><br> | 来源：<code>www.79lr.com
