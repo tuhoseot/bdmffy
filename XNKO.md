@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分23秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>券商研究所扎堆调研AI芯片设计标的，大模型推理芯片流片成功</h3><br><p>北向资金举牌工业机器人龙头，外资持仓创历史新高。<br><br> | 来源：<code>www.gntbz.cn
+</code></p><br><br><h3>多氟多涨超5.2%，六氟磷酸锂价格触底反弹</h3><br><p>百亿私募组团调研6G通信企业，技术试验进度超市场预期。<br><br> | 来源：<code>www.fm1033.cn
+</code></p><br><br><h3>人工智能产业标准落地，AI合规标的全线异动</h3><br><p>地下综合管廊规划，地下管网标的全线异动。<br><br> | 来源：<code>www.mmju.cn
+</code></p><br><br><h3>牧原股份疫病防控能力：生猪养殖龙头的核心经营壁垒</h3><br><p>网络视听内容监管优化，长视频平台标的拉升。<br><br> | 来源：<code>www.jbhn.cn
+</code></p><br><br><h3>百亿私募组团调研碳纤维企业，风电领域应用占比突破60%</h3><br><p>保险资管连续增持酒店连锁龙头，消费复苏获机构长期配置。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>头部券商到访游戏出海龙头，海外流水增速数据首次公开</h3><br><p>金龙汽车涨超3.6%，新能源客车订单持续落地。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>当升科技涨超5.1%，正极材料海外订单增长</h3><br><p>中科院紫东太初大模型2.0发布，全模态能力国际领先。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>全国乡村旅游重点村暑期接待人次破1亿，民宿入住率超95%</h3><br><p>国内大模型人才缺口破百万，AI相关专业毕业生供不应求。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>接受市场的不完美：不要试图精准抄底逃顶，赚自己认知内的钱</h3><br><p>车载激光雷达企业登陆科创板，量产交付进度超市场预期。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>中国轮滑队世锦赛包揽全部金牌，优势项目持续领跑世界</h3><br><p>平高电气特高压开关技术：输配电设备龙头的国产替代。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>央行表态保持流动性合理充裕，后续政策工具储备充足</h3><br><p>华友钴业全产业链布局：新能源金属的全球龙头成长路径。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>宝钢股份高端钢铁布局：国内钢铁龙头的产品结构升级</h3><br><p>自由贸易试验区扩围，自贸港本地股异动。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>房地产预售资金监管优化，地产链标的全线拉升</h3><br><p>降准释放资金补充银行流动性，信贷投放能力显著提升。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>智飞生物异动拉升4.9%，疫苗产品批签发量回升</h3><br><p>北向资金连续增持医美耗材龙头，近2月持仓增幅超40%。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>私募基金仓位创年内新高，私募重仓标的上涨</h3><br><p>联合国可持续发展目标中期评估，明确后续行动路径。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>海螺水泥涨超3.7%，基建投资增速回暖带动需求</h3><br><p>中国中铁一带一路订单落地，单季业绩预告超预期。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>尿素价格单月上涨9%，化肥板块迎来产品涨价催化</h3><br><p>外资资管连续加仓CXO龙头，近3月持仓占比提升至7%。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>北向资金大额扫货大金重工5100万，塔筒龙头获外资流入</h3><br><p>国内大模型备案数量破千款，行业应用落地加速。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>国家发改委出台促消费20条新政，重点支持汽车家电消费</h3><br><p>百亿私募组团调研生物育种标的，玉米种子推广面积超预期。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>多地发放消费券超200亿元，撬动社会消费超千亿元</h3><br><p>煤层气开发利用政策，煤层气标的全线拉升。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>存款利率下调后居民储蓄搬家，A股新增开户数环比大增</h3><br><p>山东高速区域路网优势：山东公路运营龙头的稳健经营。<br><br> | 来源：<code>www.cncbsc.com
