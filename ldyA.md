@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分39秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>白卡纸价格连续上涨8%，白卡纸龙头盈利弹性释放</h3><br><p>贵州暑期游订单破4000万，“村超”带动全县文旅收入翻倍。<br><br> | 来源：<code>https://zh-mitaochuanmei.com.cn
+</code></p><br><br><h3>温氏股份放量上涨4.2%，养殖业务盈利持续修复</h3><br><p>机构席位大额买入洋河股份6900万，白酒龙头获长线布局。<br><br> | 来源：<code>https://zh-mitaoshipin.com.cn
+</code></p><br><br><h3>实控人承诺6个月内不减持机器人控制器标的，稳定股价</h3><br><p>人民币国际化进程加速，跨境贸易人民币结算占比提升至38%。<br><br> | 来源：<code>https://zh-mitaotv.com.cn
+</code></p><br><br><h3>公募基金集体到访钙钛矿光伏企业，量产进度超市场预期</h3><br><p>全国塑料污染治理专项行动推进，一次性塑料制品减量30%。<br><br> | 来源：<code>https://zh-mitaowangzhan.com.cn
+</code></p><br><br><h3>三元正极材料价格上调6%，锂电材料产业链景气回升</h3><br><p>哪吒汽车涨超7.3%，下沉市场份额持续提升。<br><br> | 来源：<code>https://zh-mitaoyingshi.com.cn
+</code></p><br><br><h3>工业互联网平台落地，工业数字化标的全线拉升</h3><br><p>中国电建新能源电站运营：电力工程龙头的第二成长曲线。<br><br> | 来源：<code>https://zh-mitaozaixian.com.cn
+</code></p><br><br><h3>降准资金定向支持绿色能源，光伏风电板块获流动性利好</h3><br><p>包装纸价格上涨5%，包装板块成本端压力传导顺畅。<br><br> | 来源：<code>https://zh-miya.com.cn
+</code></p><br><br><h3>中国高尔夫球业余选手夺得职业赛事冠军，人才储备充足</h3><br><p>国产大模型日活用户破2亿，覆盖办公、教育、医疗全场景。<br><br> | 来源：<code>https://zh-mogushipin.com.cn
+</code></p><br><br><h3>大模型在教育测评领域应用，自动批改作文准确率超教师</h3><br><p>车载激光雷达企业登陆科创板，量产交付进度超市场预期。<br><br> | 来源：<code>https://zh-nan-tong-wang.com.cn
+</code></p><br><br><h3>绿电交易规模翻倍，绿电运营板块集体上涨</h3><br><p>三星堆新出土文物超千件，古蜀文明研究取得重大突破。<br><br> | 来源：<code>https://zh-ntr.com.cn
+</code></p><br><br><h3>北向资金连续增持智能驾驶龙头，近1月持仓增幅超30%</h3><br><p>超200家机构到访锂电铜箔龙头，4.5μm极薄铜箔量产。<br><br> | 来源：<code>https://zh-panjinlian.com.cn
+</code></p><br><br><h3>北向资金举牌工业机器人龙头，外资持仓创历史新高</h3><br><p>全国儿童青少年近视率同比下降2%，视力防控成效显现。<br><br> | 来源：<code>https://zh-pipi-yingyuan.com.cn
+</code></p><br><br><h3>存款利率市场化调整机制优化，银行负债端成本进一步压降</h3><br><p>北向资金举牌广告营销龙头，AI营销高增获外资持续流入。<br><br> | 来源：<code>https://zh-pipiyingyuan.com.cn
+</code></p><br><br><h3>赛力斯华为车型销量破10万，单季业绩减亏超预期</h3><br><p>东方财富涨超7.1%，基金代销业务环比改善。<br><br> | 来源：<code>https://zh-pochu.com.cn
+</code></p><br><br><h3>大北农异动拉升3.7%，种业业务贡献新增量</h3><br><p>中芯国际行业格局分析：半导体制造国产替代的核心路径。<br><br> | 来源：<code>https://zh-quanluo.com.cn
+</code></p><br><br><h3>东方盛虹EVA树脂优势：光伏胶膜原料龙头的景气受益</h3><br><p>社保基金大幅加仓创新器械标的，单季度持仓增幅超50%。<br><br> | 来源：<code>https://zh-rujiao.com.cn
+</code></p><br><br><h3>碳化硅衬底标的登陆科创板，6英寸衬底产能全球领先</h3><br><p>超160家机构到访锂电回收龙头，回收处理产能利用率超90%。<br><br> | 来源：<code>https://zh-sanjipian.com.cn
+</code></p><br><br><h3>大模型在水利领域应用，洪水预警提前量提升至72小时</h3><br><p>国产都市剧收视领跑，聚焦当代年轻人生活引发广泛讨论。<br><br> | 来源：<code>https://zh-saohuo.com.cn
+</code></p><br><br><h3>贵州茅台近5年财务复盘：高毛利背后的盈利稳定性逻辑</h3><br><p>新宙邦涨超4.5%，电解液盈利预期改善。<br><br> | 来源：<code>https://zh-sejishikong.com.cn
+</code></p><br><br><h3>上半年全国社会物流总额同比增长5.6%，物流运行效率提升</h3><br><p>中国建筑涨超2.8%，基建订单持续饱满。<br><br> | 来源：<code>https://zh-shaofu.com.cn
