@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分42秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>洋河股份异动拉升4.0%，梦之蓝系列动销超预期</h3><br><p>存储模组龙头登陆科创板，AI存储产品出货量超行业预期。<br><br> | 来源：<code>https://cili-tiantang.com.cn
+</code></p><br><br><h3>车载激光雷达企业登陆科创板，量产交付进度超市场预期</h3><br><p>全国红树林面积增至3万公顷，成为海洋生态保护标杆。<br><br> | 来源：<code>https://cililian.com.cn
+</code></p><br><br><h3>液冷技术标的开启新股申购，AI数据中心液冷订单爆发式增长</h3><br><p>超150家机构到访工业机器人标的，产能利用率突破90%。<br><br> | 来源：<code>https://cilisou.com.cn
+</code></p><br><br><h3>双汇发展肉制品龙头优势：屠宰+肉制品的协同价值</h3><br><p>3D生成大模型技术突破，1分钟生成高精度工业模型。<br><br> | 来源：<code>https://ciliwangzhan.com.cn
+</code></p><br><br><h3>半导体产业扶持基金落地，大基金二期标的全线拉升</h3><br><p>被动元器件价格集体上涨，电子板块盈利边际改善。<br><br> | 来源：<code>https://clshequ.cn
+</code></p><br><br><h3>海螺水泥涨超3.7%，基建投资增速回暖带动需求</h3><br><p>猪肉价格连续反弹20%，生猪养殖板块迎来趋势性行情。<br><br> | 来源：<code>https://clsq.cn
+</code></p><br><br><h3>全国储能装机容量突破3亿千瓦，新型储能占比超60%</h3><br><p>储能电池价格小幅上涨3%，储能产业链价格体系企稳。<br><br> | 来源：<code>https://club91.cn
+</code></p><br><br><h3>知名私募大手笔增持数字人民币标的，持仓占比突破3%</h3><br><p>炒股到最后拼的是心态：再好的牛股拿不住也是白搭。<br><br> | 来源：<code>https://cn-188-sports.com.cn
+</code></p><br><br><h3>东方电气氢能布局：能源装备龙头的第二成长曲线解析</h3><br><p>生猪价格突破18元/公斤，养殖板块盈利拐点显现。<br><br> | 来源：<code>https://cn-2026worldcup-buy.com
+</code></p><br><br><h3>镁价单月上涨18%，镁合金板块迎来产品涨价行情</h3><br><p>公募基金集中调研电力信息化龙头，虚拟电厂订单翻倍。<br><br> | 来源：<code>https://cn-2026worldcup-official.com
+</code></p><br><br><h3>WTT新乡世界杯，孙颖莎卫冕女单冠军实现赛季大满贯</h3><br><p>全国餐饮营收上半年突破4万亿，夜间餐饮占比超60%。<br><br> | 来源：<code>https://cn-9170-jinsha.com
+</code></p><br><br><h3>游资知名席位打板长安汽车2.8亿，整车标的获短线资金热炒</h3><br><p>二十国集团峰会召开，达成全球经济治理新共识。<br><br> | 来源：<code>https://cn-ab-tiyu.com.cn
+</code></p><br><br><h3>坚果产品价格上涨5%，休闲食品龙头盈利改善</h3><br><p>机器人减速器标的启动申购，谐波减速器国产替代率突破50%。<br><br> | 来源：<code>https://cn-bandao-sports.com.cn
+</code></p><br><br><h3>国产古装剧出海热播，海外流媒体播放量突破10亿次</h3><br><p>钠离子电池材料价格上涨8%，钠电池产业链盈利优化。<br><br> | 来源：<code>https://cn-bb-tiyu.com.cn
+</code></p><br><br><h3>QFII大幅加仓预制菜龙头，B端渠道扩张获海外机构看好</h3><br><p>美联储降息后全球流动性宽松，成长板块估值抬升。<br><br> | 来源：<code>https://cn-biyi-sports.com.cn
+</code></p><br><br><h3>蒙牛乳业放量上涨3.7%，低温奶业务增速亮眼</h3><br><p>腾讯混元大模型企业服务升级，助力政务、金融行业数字化。<br><br> | 来源：<code>https://cn-btiyu-web.com.cn
+</code></p><br><br><h3>券商研究所扎堆调研车载芯片龙头，车规级认证进度超预期</h3><br><p>温氏股份禽畜双主业布局：养殖行业的稳健成长逻辑。<br><br> | 来源：<code>https://cn-chengrenmanhua.com.cn
+</code></p><br><br><h3>降准资金定向支持绿色能源，光伏风电板块获流动性利好</h3><br><p>大股东耗资6.3亿增持数字人民币标的，助力场景覆盖扩张。<br><br> | 来源：<code>https://cn-haijiaoshequ.com.cn
+</code></p><br><br><h3>国内研学旅行市场规模破千亿，覆盖超5000万中小学生</h3><br><p>存款利率下调后居民储蓄搬家，A股新增开户数环比大增。<br><br> | 来源：<code>https://cn-haohaidong.com.cn
+</code></p><br><br><h3>地方国资战略入股数据要素龙头，持股比例达12%成第二大股东</h3><br><p>消费电子复苏周期：苹果链、安卓链的需求回暖信号。<br><br> | 来源：<code>https://cn-hlw.cn
