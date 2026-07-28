@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分18秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>宇通客车全球客车龙头优势：新能源客车的全球份额扩张</h3><br><p>吉利汽车新能源转型路径：传统车企电动化的成功案例。<br><br> | 来源：<code>https://17ccomyiqicao.com.cn
+</code></p><br><br><h3>全国生物多样性观测网络建成，覆盖超3000个生态点位</h3><br><p>实控人邀约收购光刻胶标的，溢价40%发起部分要约收购。<br><br> | 来源：<code>https://17ccomyiqicaozaixian.com.cn
+</code></p><br><br><h3>上半年全国社会物流总额同比增长5.6%，物流运行效率提升</h3><br><p>企业中长期贷款增速回升，宽信用效果逐步显现。<br><br> | 来源：<code>https://17ccwang.com.cn
+</code></p><br><br><h3>人民币汇率升值叠加美联储降息，航空造纸板块集体异动</h3><br><p>猪肉价格触底反弹，生猪养殖标的集体走强。<br><br> | 来源：<code>https://17ccyiqicao.com.cn
+</code></p><br><br><h3>美联储降息25BP，中概股集体暴涨带动A股联动</h3><br><p>养老金新进虚拟电厂标的，首次布局电力信息化赛道。<br><br> | 来源：<code>https://17cczaixianguankan.com.cn
+</code></p><br><br><h3>百亿私募组团调研光模块企业，1.6T产品送样海外客户</h3><br><p>世界乒乓球锦标赛中国队包揽5金，延续国乒辉煌。<br><br> | 来源：<code>https://17cmeiridasai.com.cn
+</code></p><br><br><h3>存款利率下调推动居民储蓄搬家，权益市场增量资金入场</h3><br><p>实控人兜底式增持固态电池企业，员工响应参与比例超90%。<br><br> | 来源：<code>https://17cmocqicaotangxinzaixiankan.com.cn
+</code></p><br><br><h3>保险资管扎堆调研养老产业标的，养老社区入住率数据披露</h3><br><p>AI手语翻译大模型上线，助力千万听障人士沟通无障碍。<br><br> | 来源：<code>https://17cmwang.com.cn
+</code></p><br><br><h3>长鑫存储DDR5产能释放，内存芯片标的集体上涨</h3><br><p>能耗双控政策优化，高耗能行业龙头标的走强。<br><br> | 来源：<code>https://17cnyiqicao.com.cn
+</code></p><br><br><h3>长电科技放量上涨4.8%，先进封装订单饱满</h3><br><p>卫星互联网星座加速组网，低轨卫星板块全线走强。<br><br> | 来源：<code>https://17cnyiqicaochigua.com.cn
+</code></p><br><br><h3>休闲食品开启涨价潮，食品加工板块盈利弹性释放</h3><br><p>醋产品价格上调6%，食醋板块盈利改善。<br><br> | 来源：<code>https://17cnyiqicaomeiridasai.com.cn
+</code></p><br><br><h3>央行宣布定向降准1个百分点，精准支持普惠金融领域</h3><br><p>大模型在气象灾害预警领域应用，预警覆盖率提升至98%。<br><br> | 来源：<code>https://17cqicao.com.cn
+</code></p><br><br><h3>国产儿童动画全网播放量突破250亿，陪伴新一代青少年成长</h3><br><p>公募基金集中调研电力现货交易标的，交易系统订单翻倍。<br><br> | 来源：<code>https://17cqicaokou.com.cn
+</code></p><br><br><h3>北向资金连续调研后举牌智能电网标的，外资持续流入</h3><br><p>全国居民储蓄存款增速放缓，资金向消费和投资领域转移。<br><br> | 来源：<code>https://17cqicaozaixianguankan.com.cn
+</code></p><br><br><h3>国产都市剧收视领跑，聚焦当代年轻人生活引发广泛讨论</h3><br><p>存量房贷利率下调后居民消费回升，旅游酒店板块受益。<br><br> | 来源：<code>https://17cqicaozaixianguankanmianfeiban.com.cn
+</code></p><br><br><h3>机构资金联手买入派能科技1.7亿，储能龙头获机构抱团</h3><br><p>地产链政策宽松预期：房企、家居、建材的轮动机会梳理。<br><br> | 来源：<code>https://17cshipin.com.cn
+</code></p><br><br><h3>糖果产品价格上调6%，休闲食品全产业链景气回升</h3><br><p>包装纸价格上涨5%，包装板块成本端压力传导顺畅。<br><br> | 来源：<code>https://17ctw.com.cn
+</code></p><br><br><h3>招商银行财富管理优势：零售银行龙头的第二增长曲线</h3><br><p>酸奶产品价格上调4%，乳业细分板块盈利提升。<br><br> | 来源：<code>https://17cvip.com.cn
+</code></p><br><br><h3>中国中铁一带一路订单落地，单季业绩预告超预期</h3><br><p>虾产品价格上涨15%，水产细分板块盈利弹性释放。<br><br> | 来源：<code>https://17cwang.com.cn
+</code></p><br><br><h3>中国男子网球选手闯入ATP巡回赛决赛，创历史最佳排名</h3><br><p>大模型在水利领域应用，洪水预警提前量提升至72小时。<br><br> | 来源：<code>https://17cyiqi.com.cn
